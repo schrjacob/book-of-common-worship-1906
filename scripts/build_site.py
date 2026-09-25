@@ -11,7 +11,8 @@ and writes
 
 The two manuscripts must have the same block structure: the same headings at the
 same levels, and the same number of paragraphs, lists, tables and notes, in the
-same order. Each original block is paired with the light block in the same
+same order. Where one manuscript has a block the other lacks, put `{blank}`
+(or `#### {blank}` for a heading) in the other to hold its place. Each original block is paired with the light block in the same
 position. If the files drift out of step the build stops and names the first
 place where they differ, rather than silently mis-pairing the text.
 
@@ -74,8 +75,16 @@ def inline(md):
     return s
 
 
+def is_blank(block):
+    """`{blank}` (or `#### {blank}`) holds a place in one manuscript where the other has a block
+    with no counterpart, so the two stay aligned. It renders as nothing."""
+    return re.sub(r'^#{1,6}\s+', '', block).strip() == '{blank}'
+
+
 def render(block, kind):
     """Render one block (original or light) to HTML, plus a CSS class."""
+    if is_blank(block):
+        return '', ''
     if kind == 'h':
         text = re.sub(r'^#{1,6}\s+', '', block)
         return inline(text), ''
@@ -162,8 +171,13 @@ def build():
     for o, l in zip(orig, light):
         kind, level = classify(o)
         oh, cls = render(o, kind)
-        lh, _ = render(l, kind)
+        lh, lcls = render(l, kind)
+        cls = cls or lcls
         rec = {'k': kind, 'o': oh}
+        if is_blank(o):
+            rec['ob'] = 1                        # nothing in the original here
+        if is_blank(l):
+            rec['lb'] = 1                        # nothing in the light edition here
         if lh != oh:
             rec['l'] = lh                        # omitted when identical, to keep the file small
         else:
@@ -172,7 +186,7 @@ def build():
             rec['c'] = cls
         if kind == 'h':
             rec['lv'] = level
-            rec['id'] = slugify(oh, used)
+            rec['id'] = slugify(oh or lh, used)
             chain[level] = rec['id']
             for deeper in [k for k in chain if k > level]:
                 del chain[deeper]

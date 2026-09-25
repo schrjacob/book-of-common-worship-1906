@@ -372,3 +372,11 @@ hr.rule { border: 0; border-top: 1px solid var(--rule); max-width: 10rem; margin
   [data-view="parallel"] .row--h:not(.row--same) > .l { font-size: 0.9em; opacity: 0.85; }
   .view-toggle button { padding: 0.4rem 0.6rem; font-size: 0.82rem; }
 }
+
+/* ---------------------------------------------------------------- alignment placeholders */
+/* A block present in only one edition: collapse its row in the view that lacks it
+   (kept in the flow, not display:none, so links to it still land in the right place). */
+[data-view="original"] .row--oblank,
+[data-view="modern"] .row--lblank {
+  height: 0; margin: 0; padding: 0; border: 0; overflow: hidden;
+}

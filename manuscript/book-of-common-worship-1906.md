@@ -2840,47 +2840,47 @@ Thy love and peace to every heart. Amen.
 
 #### Psalm 2
 
-1 WHY do the heathen rage: and the people imagine a vain thing?
+7 WHY do the heathen rage: and the people imagine a vain thing?
 
-2 The kings of the earth set themselves, and the rulers take counsel together: against the Lord, and against his Anointed, saying,
+8 The kings of the earth set themselves, and the rulers take counsel together: against the Lord, and against his Anointed, saying,
 
-3 Let us break their bands asunder: and cast away their cords from us.
+9 Let us break their bands asunder: and cast away their cords from us.
 
-4 He that sitteth in the heavens shall laugh: the Lord shall have them in derision.
+10 He that sitteth in the heavens shall laugh: the Lord shall have them in derision.
 
-5 Then shall he speak unto them in his wrath: and vex them in his sore displeasure.
+11 Then shall he speak unto them in his wrath: and vex them in his sore displeasure.
 
-6 Yet have I set my King: upon my holy hill of Zion.
+12 Yet have I set my King: upon my holy hill of Zion.
 
-7 I will declare the decree, the Lord hath said unto me: Thou art my Son, this day have I begotten thee.
+13 I will declare the decree, the Lord hath said unto me: Thou art my Son, this day have I begotten thee.
 
-8 Ask of me, and I shall give thee the heathen for thine inheritance: and the uttermost parts of the earth for thy possession.
+14 Ask of me, and I shall give thee the heathen for thine inheritance: and the uttermost parts of the earth for thy possession.
 
-9 Thou Shalt break them with a rod of iron: thou shalt dash them in pieces like a potter's vessel,
+15 Thou Shalt break them with a rod of iron: thou shalt dash them in pieces like a potter's vessel,
 
-10 Be wise now therefore, O ye kings: be instructed, ye judges of the earth.
+16 Be wise now therefore, O ye kings: be instructed, ye judges of the earth.
 
-11 Serve the Lord with fear: and rejoice with trembling.
+17 Serve the Lord with fear: and rejoice with trembling.
 
-12 Kiss the Son, lest he be angry, and ye perish from the way: when his wrath is kindled but a little. Blessed are all they that put their trust in him.
+18 Kiss the Son, lest he be angry, and ye perish from the way: when his wrath is kindled but a little. Blessed are all they that put their trust in him.
 
 #### Psalm 4
 
-1 HEAR me when I call, O God of my righteousness: thou hast enlarged me when I was in distress; have mercy upon me, and hear my prayer.
+19 HEAR me when I call, O God of my righteousness: thou hast enlarged me when I was in distress; have mercy upon me, and hear my prayer.
 
-2 O ye sons of men, how long will ye turn my glory into shame: how long will ye love vanity, and seek after leasing?
+20 O ye sons of men, how long will ye turn my glory into shame: how long will ye love vanity, and seek after leasing?
 
-3 But know that the Lord hath set apart him that is godly for himself: the Lord will hear when I call unto him.
+21 But know that the Lord hath set apart him that is godly for himself: the Lord will hear when I call unto him.
 
-4 Stand in awe, and sin not: commune with your own heart upon your bed, and be still.
+22 Stand in awe, and sin not: commune with your own heart upon your bed, and be still.
 
-5 Offer the sacrifices of righteousness: and put your trust in the Lord.
+23 Offer the sacrifices of righteousness: and put your trust in the Lord.
 
-6 There be many that say. Who will show us any good: Lord, lift thou up the light of thy countenance upon us.
+24 There be many that say. Who will show us any good: Lord, lift thou up the light of thy countenance upon us.
 
-7 Thou hast put gladness in my heart: more than in the time that their corn and their wine increased.
+25 Thou hast put gladness in my heart: more than in the time that their corn and their wine increased.
 
-8 I will both lay me down in peace, and sleep: for thou, Lord, only makest me dwell in safety.
+26 I will both lay me down in peace, and sleep: for thou, Lord, only makest me dwell in safety.
 
 ### Selection 2
 
@@ -2902,39 +2902,39 @@ Thy love and peace to every heart. Amen.
 
 #### Psalm 8
 
-1 O LORD our Lord, how excellent is thy name in all the earth: who hast set thy glory above the heavens!
+8 O LORD our Lord, how excellent is thy name in all the earth: who hast set thy glory above the heavens!
 
-2 Out of the mouth of babes and sucklings hast thou ordained strength because of thine enemies: that thou mightest still the enemy and the avenger.
+9 Out of the mouth of babes and sucklings hast thou ordained strength because of thine enemies: that thou mightest still the enemy and the avenger.
 
-3 When I consider thy heavens, the work of thy fingers: the moon and the stars, which thou hast ordained;
+10 When I consider thy heavens, the work of thy fingers: the moon and the stars, which thou hast ordained;
 
-4 What is man, that thou art mindful of him: and the son of man, that thou visitest him?
+11 What is man, that thou art mindful of him: and the son of man, that thou visitest him?
 
-5 For thou hast made him a little lower than the angels: and hast crowned him with glory and honour.
+12 For thou hast made him a little lower than the angels: and hast crowned him with glory and honour.
 
-6 Thou madest him to have dominion over the works of thy hands: thou hast put all things under his feet;
+13 Thou madest him to have dominion over the works of thy hands: thou hast put all things under his feet;
 
-7 All sheep and oxen: yea, and the beasts of the field;
+14 All sheep and oxen: yea, and the beasts of the field;
 
-8 The fowl of the air, and the fish of the sea; and whatsoever passeth through the paths of the seas.
+15 The fowl of the air, and the fish of the sea; and whatsoever passeth through the paths of the seas.
 
-9 O Lord our Lord: how excellent is thy name in all the earth!
+16 O Lord our Lord: how excellent is thy name in all the earth!
 
 #### Psalm 11
 
-1 IN the Lord put I my trust: how say ye to my soul, Flee as a bird to your mountain?
+17 IN the Lord put I my trust: how say ye to my soul, Flee as a bird to your mountain?
 
-2 For, lo, the wicked bend their bow, they make ready their arrow upon the string: that they may privily shoot at the upright in heart.
+18 For, lo, the wicked bend their bow, they make ready their arrow upon the string: that they may privily shoot at the upright in heart.
 
-3 If the foundations be destroyed: what can the righteous do?
+19 If the foundations be destroyed: what can the righteous do?
 
-4 The Lord is in his holy temple, the Lord's throne is in heaven: his eyes behold, his eyelids try the children of men.
+20 The Lord is in his holy temple, the Lord's throne is in heaven: his eyes behold, his eyelids try the children of men.
 
-5 The Lord trieth the righteous: but the wicked and him that loveth violence his soul hateth,
+21 The Lord trieth the righteous: but the wicked and him that loveth violence his soul hateth,
 
-6 Upon the wicked he shall rain snares, fire and brimstone, and a horrible tempest: this shall be the portion of their cup.
+22 Upon the wicked he shall rain snares, fire and brimstone, and a horrible tempest: this shall be the portion of their cup.
 
-7 For the righteous Lord loveth righteousness: his countenance doth behold the upright.
+23 For the righteous Lord loveth righteousness: his countenance doth behold the upright.
 
 ### Selection 3
 
@@ -2954,39 +2954,39 @@ Thy love and peace to every heart. Amen.
 
 #### Psalm 15
 
-1 LORD, who shall abide in thy tabernacle: who shall dwell in thy holy hill?
+7 LORD, who shall abide in thy tabernacle: who shall dwell in thy holy hill?
 
-2 He that walketh uprightly: and worketh righteousness, and speaketh the truth in his heart.
+8 He that walketh uprightly: and worketh righteousness, and speaketh the truth in his heart.
 
-3 He that backbiteth not with his tongue, nor doeth evil to his neighbour: nor taketh up a reproach against his neighbour.
+9 He that backbiteth not with his tongue, nor doeth evil to his neighbour: nor taketh up a reproach against his neighbour.
 
-4 In whose eyes a vile person is contemned; but he honoureth them that fear the Lord: he that sweareth to his own hurt, and changeth not.
+10 In whose eyes a vile person is contemned; but he honoureth them that fear the Lord: he that sweareth to his own hurt, and changeth not.
 
-5 He that putteth not out his money to usury, nor taketh reward against the innocent: he that doeth these things shall never be moved.
+11 He that putteth not out his money to usury, nor taketh reward against the innocent: he that doeth these things shall never be moved.
 
 #### Psalm 16
 
-1 PRESERVE me, O God: for in thee do I put my trust.
+12 PRESERVE me, O God: for in thee do I put my trust.
 
-2 O my soul, thou hast said unto the Lord: Thou art my Lord, my goodness extendeth not to thee;
+13 O my soul, thou hast said unto the Lord: Thou art my Lord, my goodness extendeth not to thee;
 
-3 But to the saints that are in the earth: and to the excellent, in whom is all my delight.
+14 But to the saints that are in the earth: and to the excellent, in whom is all my delight.
 
-4 Their sorrows shall be multiplied that hasten after another god: their drink offerings of blood will I not offer, nor take up their names into my lips.
+15 Their sorrows shall be multiplied that hasten after another god: their drink offerings of blood will I not offer, nor take up their names into my lips.
 
-5 The Lord is the portion of mine inheritance and of my cup: thou maintainest my lot.
+16 The Lord is the portion of mine inheritance and of my cup: thou maintainest my lot.
 
-6 The lines are fallen unto me in pleasant places: yea, I have a goodly heritage.
+17 The lines are fallen unto me in pleasant places: yea, I have a goodly heritage.
 
-7 I will bless the Lord, who hath given me counsel: my reins also instruct me in the night seasons.
+18 I will bless the Lord, who hath given me counsel: my reins also instruct me in the night seasons.
 
-8 I have set the Lord always before me: because he is at my right hand, I shall not be moved.
+19 I have set the Lord always before me: because he is at my right hand, I shall not be moved.
 
-9 Therefore my heart is glad, and my glory rejoiceth: my flesh also shall rest in hope.
+20 Therefore my heart is glad, and my glory rejoiceth: my flesh also shall rest in hope.
 
-10 For thou wilt not leave my soul in hell: neither wilt thou suffer thine Holy One to see corruption.
+21 For thou wilt not leave my soul in hell: neither wilt thou suffer thine Holy One to see corruption.
 
-11 Thou wilt show me the path of life; in thy presence is fulness of joy: at thy right hand there are pleasures for evermore.
+22 Thou wilt show me the path of life; in thy presence is fulness of joy: at thy right hand there are pleasures for evermore.
 
 ### Selection 4
 
@@ -3010,103 +3010,103 @@ Thy love and peace to every heart. Amen.
 
 9 From the wicked that oppress me: from my deadly enemies, who compass me about.
 
-15 As for me, I will behold thy face in righteousness: I shall be satisfied, when I awake, with thy likeness.
+10 As for me, I will behold thy face in righteousness: I shall be satisfied, when I awake, with thy likeness.
 
 #### Psalm 18: 1-19
 
-1 I WILL love thee: O Lord, my strength.
+11 I WILL love thee: O Lord, my strength.
 
-2 The Lord is my rock, and my fortress, and my deliverer: my God, my strength, in whom I will trust; my buckler, and the horn of my salvation, and my high tower.
+12 The Lord is my rock, and my fortress, and my deliverer: my God, my strength, in whom I will trust; my buckler, and the horn of my salvation, and my high tower.
 
-3 I will call upon the Lord, who is worthy to be praised: so shall I be saved from mine enemies.
+13 I will call upon the Lord, who is worthy to be praised: so shall I be saved from mine enemies.
 
-4 The sorrows of death compassed me: and the floods of ungodly men made me afraid.
+14 The sorrows of death compassed me: and the floods of ungodly men made me afraid.
 
-5 The sorrows of hell compassed me about: the snares of death prevented me.
+15 The sorrows of hell compassed me about: the snares of death prevented me.
 
-6 In my distress I called upon the Lord, and cried unto my God: he heard my voice out of his temple, and my cry came before him, even into his ears.
+16 In my distress I called upon the Lord, and cried unto my God: he heard my voice out of his temple, and my cry came before him, even into his ears.
 
-7 Then the earth shook and trembled: the foundations also of the hills moved and were shaken, because he was wroth.
+17 Then the earth shook and trembled: the foundations also of the hills moved and were shaken, because he was wroth.
 
-8 There went up a smoke out of his nostrils: and fire out of his mouth devoured, coals were kindled by it.
+18 There went up a smoke out of his nostrils: and fire out of his mouth devoured, coals were kindled by it.
 
-9 He bowed the heavens also, and came down: and darkness was under his feet.
+19 He bowed the heavens also, and came down: and darkness was under his feet.
 
-10 And he rode upon a cherub, and did fly: yea, he did fly upon the wings of the wind.
+20 And he rode upon a cherub, and did fly: yea, he did fly upon the wings of the wind.
 
-11 He made darkness his secret place: his pavilion round about him were dark waters and thick clouds of the skies.
+21 He made darkness his secret place: his pavilion round about him were dark waters and thick clouds of the skies.
 
-12 At the brightness that was before him his thick clouds passed: hail stones and coals of fire.
+22 At the brightness that was before him his thick clouds passed: hail stones and coals of fire.
 
-13 The Lord also thundered in the heavens, and the Highest gave his voice: hail stones and coals of fire.
+23 The Lord also thundered in the heavens, and the Highest gave his voice: hail stones and coals of fire.
 
-14 Yea, he sent out his arrows, and scattered them: and he shot out lightnings, and discomfited them.
+24 Yea, he sent out his arrows, and scattered them: and he shot out lightnings, and discomfited them.
 
-15 Then the channels of waters were seen, and the foundations of the world were discovered at thy rebuke, O Lord: at the blast of the breath of thy nostrils.
+25 Then the channels of waters were seen, and the foundations of the world were discovered at thy rebuke, O Lord: at the blast of the breath of thy nostrils.
 
-16 He sent from above, he took me: he drew me out of many waters.
+26 He sent from above, he took me: he drew me out of many waters.
 
-17 He delivered me from my strong enemy, and from them which hated me: for they were too strong for me.
+27 He delivered me from my strong enemy, and from them which hated me: for they were too strong for me.
 
-18 They prevented me in the day of my calamity: but the Lord was my stay.
+28 They prevented me in the day of my calamity: but the Lord was my stay.
 
-19 He brought me forth also into a large place: he delivered me, because he delighted in me.
+29 He brought me forth also into a large place: he delivered me, because he delighted in me.
 
 ### Selection 5
 
 #### Psalm 18: 25-35
 
-25 WITH the merciful thou wilt show thyself merciful: with an upright man thou wilt show thyself upright;
+1 WITH the merciful thou wilt show thyself merciful: with an upright man thou wilt show thyself upright;
 
-26 With the pure thou wilt show thyself pure: and with the froward thou wilt show thyself froward.
+2 With the pure thou wilt show thyself pure: and with the froward thou wilt show thyself froward.
 
-27 For thou wilt save the afflicted people: but wilt bring down high looks.
+3 For thou wilt save the afflicted people: but wilt bring down high looks.
 
-28 For thou wilt light my candle: the Lord my God will enlighten my darkness.
+4 For thou wilt light my candle: the Lord my God will enlighten my darkness.
 
-29 For by thee I have run through a troop: and by my God have I leaped over a wall.
+5 For by thee I have run through a troop: and by my God have I leaped over a wall.
 
-30 As for God, his way is perfect: the word of the Lord is tried; he is a buckler to all those that trust in him.
+6 As for God, his way is perfect: the word of the Lord is tried; he is a buckler to all those that trust in him.
 
-31 For who is God save the Lord: or who is a rock save our God?
+7 For who is God save the Lord: or who is a rock save our God?
 
-32 It is God that girdeth me with strength: and maketh my way perfect.
+8 It is God that girdeth me with strength: and maketh my way perfect.
 
-33 He maketh my feet like hinds' feet: and setteth me upon my high places.
+9 He maketh my feet like hinds' feet: and setteth me upon my high places.
 
-34 He teacheth my hands to war: so that a bow of steel is broken by mine arms.
+10 He teacheth my hands to war: so that a bow of steel is broken by mine arms.
 
-35 Thou hast also given me the shield of thy salvation: and thy right hand hath holden me up, and thy gentleness hath made me great.
+11 Thou hast also given me the shield of thy salvation: and thy right hand hath holden me up, and thy gentleness hath made me great.
 
 #### Psalm 19
 
-1 THE heavens declare the glory of God: and the firmament showeth his handywork,
+12 THE heavens declare the glory of God: and the firmament showeth his handywork,
 
-2 Day unto day uttereth speech: and night unto night showeth knowledge.
+13 Day unto day uttereth speech: and night unto night showeth knowledge.
 
-3 There is no speech nor language: where their voice is not heard.
+14 There is no speech nor language: where their voice is not heard.
 
-4 Their line is gone out through all the earth, and their words to the end of the world: In them hath he set a tabernacle for the sun,
+15 Their line is gone out through all the earth, and their words to the end of the world: In them hath he set a tabernacle for the sun,
 
-5 Which is as a bridegroom coming out of his chamber: and rejoiceth as a strong man to run a race.
+16 Which is as a bridegroom coming out of his chamber: and rejoiceth as a strong man to run a race.
 
-6 His going forth is from the end of the heaven, and his circuit unto the ends of it: and there is nothing hid from the heat thereof.
+17 His going forth is from the end of the heaven, and his circuit unto the ends of it: and there is nothing hid from the heat thereof.
 
-7 The law of the Lord is perfect, converting the soul: the testimony of the Lord is sure, making wise the simple.
+18 The law of the Lord is perfect, converting the soul: the testimony of the Lord is sure, making wise the simple.
 
-8 The statutes of the Lord are right, rejoicing the heart: the commandment of the Lord is pure, enlightening the eyes.
+19 The statutes of the Lord are right, rejoicing the heart: the commandment of the Lord is pure, enlightening the eyes.
 
-9 The fear of the Lord is clean, enduring for ever: the judgments of the Lord are true and righteous altogether.
+20 The fear of the Lord is clean, enduring for ever: the judgments of the Lord are true and righteous altogether.
 
-10 More to be desired are they than gold, yea, than much fine gold: sweeter also than honey and the honeycomb.
+21 More to be desired are they than gold, yea, than much fine gold: sweeter also than honey and the honeycomb.
 
-11 Moreover by them is thy servant warned: and in keeping of them there is great reward.
+22 Moreover by them is thy servant warned: and in keeping of them there is great reward.
 
-12 Who can understand his errors: cleanse thou me from secret faults.
+23 Who can understand his errors: cleanse thou me from secret faults.
 
-13 Keep back thy servant also from presumptuous sins; let them not have dominion over me: then shall I be upright, and I shall be innocent from the great transgression.
+24 Keep back thy servant also from presumptuous sins; let them not have dominion over me: then shall I be upright, and I shall be innocent from the great transgression.
 
-14 Let the words of my mouth, and the meditation of my heart, be acceptable in thy sight: O Lord, my strength, and my redeemer.
+25 Let the words of my mouth, and the meditation of my heart, be acceptable in thy sight: O Lord, my strength, and my redeemer.
 
 ### Selection 6
 
@@ -3132,39 +3132,39 @@ Thy love and peace to every heart. Amen.
 
 #### Psalm 23
 
-1 THE Lord is my shepherd: I shall not want.
+10 THE Lord is my shepherd: I shall not want.
 
-2 He maketh me to lie down in green pastures: he leadeth me beside the still waters.
+11 He maketh me to lie down in green pastures: he leadeth me beside the still waters.
 
-3 He restoreth my soul: he leadeth me in the paths of righteousness for his name's sake.
+12 He restoreth my soul: he leadeth me in the paths of righteousness for his name's sake.
 
-4 Yea, though I walk through the valley of the shadow of death, I will fear no evil: for thou art with me; thy rod and thy staff they comfort me.
+13 Yea, though I walk through the valley of the shadow of death, I will fear no evil: for thou art with me; thy rod and thy staff they comfort me.
 
-5 Thou preparest a table before me in the presence of mine enemies: thou anointest my head with oil; my cup runneth over.
+14 Thou preparest a table before me in the presence of mine enemies: thou anointest my head with oil; my cup runneth over.
 
-6 Surely goodness and mercy shall follow me all the days of my life: and I will dwell in the house of the Lord for ever.
+15 Surely goodness and mercy shall follow me all the days of my life: and I will dwell in the house of the Lord for ever.
 
 #### Psalm 24
 
-1 THE earth is the Lord's, and the fulness thereof: the world, and they that dwell therein,
+16 THE earth is the Lord's, and the fulness thereof: the world, and they that dwell therein,
 
-2 For he hath founded it upon the seas: and established it upon the floods,
+17 For he hath founded it upon the seas: and established it upon the floods,
 
-3 Who shall ascend into the hill of the Lord: or who shall stand in his holy place?
+18 Who shall ascend into the hill of the Lord: or who shall stand in his holy place?
 
-4 He that hath clean hands, and a pure heart: who hath not lifted up his soul unto vanity, nor sworn deceitfully,
+19 He that hath clean hands, and a pure heart: who hath not lifted up his soul unto vanity, nor sworn deceitfully,
 
-5 He shall receive the blessing from the Lord: and righteousness from the God of his salvation,
+20 He shall receive the blessing from the Lord: and righteousness from the God of his salvation,
 
-6 This is the generation of them that seek him: that seek thy face, O Jacob,
+21 This is the generation of them that seek him: that seek thy face, O Jacob,
 
-7 Lift up your heads, O ye gates; and be ye lifted up, ye everlasting doors: and the King of glory shall come in.
+22 Lift up your heads, O ye gates; and be ye lifted up, ye everlasting doors: and the King of glory shall come in.
 
-8 Who is this King of glory: The Lord strong and mighty, the Lord mighty in battle.
+23 Who is this King of glory: The Lord strong and mighty, the Lord mighty in battle.
 
-9 Lift up your heads, O ye gates; even lift them up, ye everlasting doors: and the King of glory shall come in,
+24 Lift up your heads, O ye gates; even lift them up, ye everlasting doors: and the King of glory shall come in,
 
-10 Who is this King of glory: The Lord of hosts, he is the King of glory,
+25 Who is this King of glory: The Lord of hosts, he is the King of glory,
 
 ### Selection 7
 
@@ -3218,61 +3218,63 @@ Thy love and peace to every heart. Amen.
 
 #### Psalm 26: 8-12
 
-8 LORD, I have loved the habitation of thy house: and the place where thine honour dwelleth.
+1 LORD, I have loved the habitation of thy house: and the place where thine honour dwelleth.
 
-9 Gather not my soul with sinners: nor my life with bloody men,
+2 Gather not my soul with sinners: nor my life with bloody men,
 
-10 In whose hands is mischief: and their right hand is full of bribes.
+3 In whose hands is mischief: and their right hand is full of bribes.
 
-11 But as for me, I will walk in mine integrity: redeem me, and be merciful unto me.
+4 But as for me, I will walk in mine integrity: redeem me, and be merciful unto me.
 
-12 My foot standeth in an even place: in the congregations will I bless the Lord.
+5 My foot standeth in an even place: in the congregations will I bless the Lord.
 
 #### Psalm 27
 
-1 THE Lord is my light and my salvation; whom shall I fear: the Lord is the strength of my life; of whom shall I be afraid?
+6 THE Lord is my light and my salvation; whom shall I fear: the Lord is the strength of my life; of whom shall I be afraid?
 
-2 When the wicked, even mine enemies and my foes, came upon me to eat up my flesh: they stumbled and fell.
+7 When the wicked, even mine enemies and my foes, came upon me to eat up my flesh: they stumbled and fell.
 
-3 Though a host should encamp against me, my heart shall not fear: though war should rise against me, in this will I be confident.
+8 Though a host should encamp against me, my heart shall not fear: though war should rise against me, in this will I be confident.
 
-4 One thing have I desired of the Lord, that will I seek after: that I may dwell in the house of the Lord all the days of my life, to behold the beauty of the Lord, and to inquire in his temple.
+9 One thing have I desired of the Lord, that will I seek after: that I may dwell in the house of the Lord all the days of my life, to behold the beauty of the Lord, and to inquire in his temple.
 
-5 For in the time of trouble he shall hide me in his pavilion: in the secret of his tabernacle shall he hide me; he shall set me up upon a rock.
+10 For in the time of trouble he shall hide me in his pavilion: in the secret of his tabernacle shall he hide me; he shall set me up upon a rock.
 
-6 And now shall mine head be lifted up above mine enemies round about me: therefore will I offer in his tabernacle sacrifices of joy; I will sing, yea, I will sing praises unto the Lord.
+11 And now shall mine head be lifted up above mine enemies round about me: therefore will I offer in his tabernacle sacrifices of joy; I will sing, yea, I will sing praises unto the Lord.
 
-7 Hear, O Lord, when I cry with my voice: have mercy also upon me, and answer me.
+12 Hear, O Lord, when I cry with my voice: have mercy also upon me, and answer me.
 
-8 When thou saidst, Seek ye my face: my heart said unto thee, Thy face, Lord, will I seek.
+13 When thou saidst, Seek ye my face: my heart said unto thee, Thy face, Lord, will I seek.
 
-9 Hide not thy face far from me; put not thy servant away in anger: thou hast been my help; leave me not, neither forsake me, O God of my salvation.
+14 Hide not thy face far from me; put not thy servant away in anger: thou hast been my help; leave me not, neither forsake me, O God of my salvation.
 
-10 When my father and my mother forsake me: then the Lord will take me up.
+15 When my father and my mother forsake me: then the Lord will take me up.
 
-11 Teach me thy way, O Lord: and lead me in a plain path, because of mine enemies.
+16 Teach me thy way, O Lord: and lead me in a plain path, because of mine enemies.
 
-12 Deliver me not over unto the will of mine enemies: for false witnesses are risen up against me, and such as breathe out cruelty.
+17 Deliver me not over unto the will of mine enemies: for false witnesses are risen up against me, and such as breathe out cruelty.
 
-13 I had fainted: unless I had believed to see the goodness of the Lord in the land of the living.
+18 I had fainted: unless I had believed to see the goodness of the Lord in the land of the living.
 
-14 Wait on the Lord: be of good courage, and he shall strengthen thine heart; wait, I say, on the Lord.
+19 Wait on the Lord: be of good courage, and he shall strengthen thine heart; wait, I say, on the Lord.
 
-#### Psalm 28: 6-9
+#### {blank}
 
-<!-- NOTE: the 1906 print has no heading here and misplaces the two Psalm headings of Selection 9; corrected. -->
+<!-- The 1906 print has no heading here; the light edition supplies "Psalm 28: 6-9". -->
 
-6 BLESSED be the Lord: because he hath heard the voice of my supplications.
+20 BLESSED be the Lord: because he hath heard the voice of my supplications.
 
-7 The Lord is my strength and my shield; my heart trusted in him, and I am helped: therefore my heart greatly rejoiceth; and with my song will I praise him.
+21 The Lord is my strength and my shield; my heart trusted in him, and I am helped: therefore my heart greatly rejoiceth; and with my song will I praise him.
 
-8 The Lord is their strength: and he is the saving strength of his anointed.
+22 The Lord is their strength: and he is the saving strength of his anointed.
 
-9 Save thy people, and bless thine inheritance: feed them also, and lift them up for ever.
+23 Save thy people, and bless thine inheritance: feed them also, and lift them up for ever.
 
 ### Selection 9
 
-#### Psalm 29
+#### Psalm 28: 6-9
+
+<!--REVIEW: printed heading misplaced in the 1906 original: verses under it are Psalm 29; the 'Psalm 29' heading below stands over Psalm 30, and Psalm 28:6-9 (vv. 20-23 of Selection 8) has no heading. Left as printed-->
 
 1 GIVE unto the Lord, O ye mighty: give unto the Lord glory and strength.
 
@@ -3296,31 +3298,31 @@ Thy love and peace to every heart. Amen.
 
 11 The Lord will give strength unto his people: the Lord will bless his people with peace.
 
-#### Psalm 30
+#### Psalm 29
 
-1 I WILL extol thee, O Lord, for thou hast lifted me up: and hast not made my foes to rejoice over me.
+12 I WILL extol thee, O Lord, for thou hast lifted me up: and hast not made my foes to rejoice over me.
 
-2 O Lord my God, I cried unto thee: and thou hast healed me.
+13 O Lord my God, I cried unto thee: and thou hast healed me.
 
-3 O Lord, thou hast brought up my soul from the grave: thou hast kept me alive, that I should not go down to the pit.
+14 O Lord, thou hast brought up my soul from the grave: thou hast kept me alive, that I should not go down to the pit.
 
-4 Sing unto the Lord, O ye saints of his: and give thanks at the remembrance of his holiness.
+15 Sing unto the Lord, O ye saints of his: and give thanks at the remembrance of his holiness.
 
-5 For his anger endureth but a moment; in his favour is life: weeping may endure for a night, but joy cometh in the morning.
+16 For his anger endureth but a moment; in his favour is life: weeping may endure for a night, but joy cometh in the morning.
 
-6 And in my prosperity I said: I shall never be moved.
+17 And in my prosperity I said: I shall never be moved.
 
-7 Lord, by thy favour thou hast made my mountain to stand strong: thou didst hide thy face, and I was troubled
+18 Lord, by thy favour thou hast made my mountain to stand strong: thou didst hide thy face, and I was troubled
 
-8 I cried to thee, O Lord: and unto the Lord I made supplication.
+19 I cried to thee, O Lord: and unto the Lord I made supplication.
 
-9 What profit is there in my blood, when I go down to the pit: Shall the dust praise thee? shall it declare thy truth?
+20 What profit is there in my blood, when I go down to the pit: Shall the dust praise thee? shall it declare thy truth?
 
-10 Hear, O Lord, and have mercy upon me: Lord be thou my helper.
+21 Hear, O Lord, and have mercy upon me: Lord be thou my helper.
 
-11 Thou hast turned for me my mourning into dancing: thou hast put off my sackcloth, and girded me with gladness;
+22 Thou hast turned for me my mourning into dancing: thou hast put off my sackcloth, and girded me with gladness;
 
-12 To the end that my glory may sing praise to thee, and not be silent: O Lord my God, I will give thanks unto thee for ever.
+23 To the end that my glory may sing praise to thee, and not be silent: O Lord my God, I will give thanks unto thee for ever.
 
 ### Selection 10
 
@@ -3336,45 +3338,45 @@ Thy love and peace to every heart. Amen.
 
 5 Into thine hand I commit my spirit: thou hast redeemed me, O Lord God of truth.
 
-15 My times are in thy hand: deliver me from the hand of mine enemies, and from them that persecute me.
+6 My times are in thy hand: deliver me from the hand of mine enemies, and from them that persecute me.
 
-16 Make thy face to shine upon thy servant: save me for thy mercies' sake.
+7 Make thy face to shine upon thy servant: save me for thy mercies' sake.
 
-19 Oh how great is thy goodness, which thou hast laid up for them that fear thee: which thou hast wrought for them that trust in thee before the sons of men '
+8 Oh how great is thy goodness, which thou hast laid up for them that fear thee: which thou hast wrought for them that trust in thee before the sons of men '
 
-20 Thou shalt hide them in the secret of thy presence from the pride of man: thou shalt keep them secretly in a pavilion from the strife of tongues.
+9 Thou shalt hide them in the secret of thy presence from the pride of man: thou shalt keep them secretly in a pavilion from the strife of tongues.
 
-21 Blessed be the Lord: for he hath showed me his marvellous kindness in a strong city.
+10 Blessed be the Lord: for he hath showed me his marvellous kindness in a strong city.
 
-22 For I said in my haste, I am cut off from before thine eyes: nevertheless thou heardest the voice of my supplications when I cried unto thee.
+11 For I said in my haste, I am cut off from before thine eyes: nevertheless thou heardest the voice of my supplications when I cried unto thee.
 
-23 O love the Lord, all ye his saints: for the Lord preserveth the faithful, and plentifully rewardeth the proud doer.
+12 O love the Lord, all ye his saints: for the Lord preserveth the faithful, and plentifully rewardeth the proud doer.
 
-24 Be of good courage, and he shall strengthen your heart: all ye that hope in the Lord.
+13 Be of good courage, and he shall strengthen your heart: all ye that hope in the Lord.
 
 #### Psalm 32
 
-1 BLESSED is he whose transgression is forgiven: whose sin is covered.
+14 BLESSED is he whose transgression is forgiven: whose sin is covered.
 
-2 Blessed is the man unto whom the Lord imputeth not iniquity: and in whose spirit there is no guile.
+15 Blessed is the man unto whom the Lord imputeth not iniquity: and in whose spirit there is no guile.
 
-3 When I kept silence; my bones waxed old through my roaring all the day long.
+16 When I kept silence; my bones waxed old through my roaring all the day long.
 
-4 For day and night thy hand was heavy upon me: my moisture is turned into the drought of summer.
+17 For day and night thy hand was heavy upon me: my moisture is turned into the drought of summer.
 
-5 I acknowledged my sin unto thee, and mine iniquity have I not hid: I said, I will confess my transgressions unto the Lord; and thou forgavest the iniquity of my sin.
+18 I acknowledged my sin unto thee, and mine iniquity have I not hid: I said, I will confess my transgressions unto the Lord; and thou forgavest the iniquity of my sin.
 
-6 For this shall every one that is godly pray unto thee in a time when thou mayest be found: surely in the floods of great waters they shall not come nigh unto him.
+19 For this shall every one that is godly pray unto thee in a time when thou mayest be found: surely in the floods of great waters they shall not come nigh unto him.
 
-7 Thou art my hiding place; thou shalt preserve me from trouble: thou shalt compass me about with songs of deliverance.
+20 Thou art my hiding place; thou shalt preserve me from trouble: thou shalt compass me about with songs of deliverance.
 
-8 I will instruct thee and teach thee in the way which thou shalt go: I will guide thee with mine eye.
+21 I will instruct thee and teach thee in the way which thou shalt go: I will guide thee with mine eye.
 
-9 Be ye not as the horse, or as the mule, which have no understanding: whose mouth must be held in with bit and bridle, lest they come near unto thee.
+22 Be ye not as the horse, or as the mule, which have no understanding: whose mouth must be held in with bit and bridle, lest they come near unto thee.
 
-10 Many sorrows shall be to the wicked: but he that trusteth in the Lord, mercy shall compass him about.
+23 Many sorrows shall be to the wicked: but he that trusteth in the Lord, mercy shall compass him about.
 
-11 Be glad in the Lord, and rejoice, ye righteous: and shout for joy, all ye that are upright in heart.
+24 Be glad in the Lord, and rejoice, ye righteous: and shout for joy, all ye that are upright in heart.
 
 ### Selection 11
 
@@ -3474,17 +3476,17 @@ Thy love and peace to every heart. Amen.
 
 #### Psalm 36: 5-10
 
-5 THY mercy, O Lord, is in the heavens: and thy faithfulness reacheth unto the clouds.
+23 THY mercy, O Lord, is in the heavens: and thy faithfulness reacheth unto the clouds.
 
-6 Thy righteousness is like the great mountains: thy judgments are a great deep: O Lord, thou preservest man and beast.
+24 Thy righteousness is like the great mountains: thy judgments are a great deep: O Lord, thou preservest man and beast.
 
-7 How excellent is thy loving-kindness, O God: therefore the children of men put their trust under the shadow of thy wings.
+25 How excellent is thy loving-kindness, O God: therefore the children of men put their trust under the shadow of thy wings.
 
-8 They shall be abundantly satisfied with the fatness of thy house: and thou shalt make them drink of the river of thy pleasures.
+26 They shall be abundantly satisfied with the fatness of thy house: and thou shalt make them drink of the river of thy pleasures.
 
-9 For with thee is the fountain of life: in thy light shall we see light.
+27 For with thee is the fountain of life: in thy light shall we see light.
 
-10 O continue thy loving-kindness unto them that know thee: and thy righteousness to the upright in heart.
+28 O continue thy loving-kindness unto them that know thee: and thy righteousness to the upright in heart.
 
 ### Selection 13
 
@@ -3508,41 +3510,41 @@ Thy love and peace to every heart. Amen.
 
 9 For evil doers shall be cut off: but those that wait upon the Lord, they shall inherit the earth.
 
-23 The steps of a good man are ordered by the Lord: and he delighteth in his way.
+10 The steps of a good man are ordered by the Lord: and he delighteth in his way.
 
-24 Though he fall, he shall not be utterly cast down: for the Lord upholdeth him with his hand.
+11 Though he fall, he shall not be utterly cast down: for the Lord upholdeth him with his hand.
 
-25 I have been young, and now am old: yet have I not seen the righteous forsaken, nor his seed begging bread.
+12 I have been young, and now am old: yet have I not seen the righteous forsaken, nor his seed begging bread.
 
-26 He is ever merciful, and lendeth: and his seed is blessed.
+13 He is ever merciful, and lendeth: and his seed is blessed.
 
-27 Depart from evil, and do good: and dwell for evermore.
+14 Depart from evil, and do good: and dwell for evermore.
 
-28 For the Lord loveth judgment, and forsaketh not his saints, they are preserved for ever: but the seed of the wicked shall be cut off.
+15 For the Lord loveth judgment, and forsaketh not his saints, they are preserved for ever: but the seed of the wicked shall be cut off.
 
-29 The righteous shall inherit the land: and dwell therein for ever.
+16 The righteous shall inherit the land: and dwell therein for ever.
 
-30 The mouth of the righteous speaketh wisdom: and his tongue talketh of judgment.
+17 The mouth of the righteous speaketh wisdom: and his tongue talketh of judgment.
 
-31 The law of his God is in his heart: none of his steps shall slide.
+18 The law of his God is in his heart: none of his steps shall slide.
 
-32 The wicked watcheth the righteous: and seeketh to slay him.
+19 The wicked watcheth the righteous: and seeketh to slay him.
 
-33 The Lord will not leave him in his hand: nor condemn him when he is judged.
+20 The Lord will not leave him in his hand: nor condemn him when he is judged.
 
-34 Wait on the Lord, and keep his way, and he shall exalt thee to inherit the land: when the wicked are cut off, thou shalt see it.
+21 Wait on the Lord, and keep his way, and he shall exalt thee to inherit the land: when the wicked are cut off, thou shalt see it.
 
-35 I have seen the wicked in great power: and spreading himself like a green bay tree.
+22 I have seen the wicked in great power: and spreading himself like a green bay tree.
 
-36 Yet he passed away, and, lo, he was not: yea, I sought him, but he could not be found.
+23 Yet he passed away, and, lo, he was not: yea, I sought him, but he could not be found.
 
-37 Mark the perfect man, and behold the upright: for the end of that man is peace.
+24 Mark the perfect man, and behold the upright: for the end of that man is peace.
 
-38 But the transgressors shall be destroyed together: the end of the wicked shall be cut off.
+25 But the transgressors shall be destroyed together: the end of the wicked shall be cut off.
 
-39 But the salvation of the righteous is of the Lord: he is their strength in the time of trouble.
+26 But the salvation of the righteous is of the Lord: he is their strength in the time of trouble.
 
-40 And the Lord shall help them, and deliver them: he shall deliver them from the wicked, and save them, because they trust in him.
+27 And the Lord shall help them, and deliver them: he shall deliver them from the wicked, and save them, because they trust in him.
 
 ### Selection 14
 
@@ -3576,35 +3578,37 @@ Thy love and peace to every heart. Amen.
 
 #### Psalm 40: 1-13, 16-17
 
-1 I WAITED patiently for the Lord: and he inclined unto me, and heard my cry.
+14 I WAITED patiently for the Lord: and he inclined unto me, and heard my cry.
 
-2 He brought me up also out of a horrible pit, out of the miry clay: and set my feet upon a rock, and established my goings.
+15 He brought me up also out of a horrible pit, out of the miry clay: and set my feet upon a rock, and established my goings.
 
-3 And he hath put a new song in my mouth, even praise unto our God: many shall see it, and fear, and shall trust in the Lord.
+16 And he hath put a new song in my mouth, even praise unto our God: many shall see it, and fear, and shall trust in the Lord.
 
-4 Blessed is that man that maketh the Lord his trust: and respecteth not the proud, nor such as turn aside to lies.
+17 Blessed is that man that maketh the Lord his trust: and respecteth not the proud, nor such as turn aside to lies.
 
-5 Many, O Lord my God, are thy wonderful works which thou hast done: and thy thoughts which are to usward: they cannot be reckoned up in order unto thee: if I would declare and speak of them, they are more than can be numbered.
+18 Many, O Lord my God, are thy wonderful works which thou hast done: and thy thoughts which are to usward:
 
-6 Sacrifice and offering thou didst not desire; mine ears hast thou opened: burnt offering and sin offering hast thou not required.
+19 They cannot be reckoned up in order unto thee: if I would declare and speak of them, they are more than can be numbered.
 
-7 Then said I, Lo, I come: in the volume of the book it is written of me,
+20 Sacrifice and offering thou didst not desire; mine ears hast thou opened: burnt offering and sin offering hast thou not required.
 
-8 I delight to do thy will, O my God: yea, thy law is within my heart.
+21 Then said I, Lo, I come: in the volume of the book it is written of me,
 
-9 I have preached righteousness in the great congregation: lo, I have not refrained my lips, O Lord, thou knowest.
+22 I delight to do thy will, O my God: yea, thy law is within my heart.
 
-10 I have not hid thy righteousness within my heart; I have declared thy faithfulness and thy salvation: I have not concealed thy loving-kindness and thy truth from the great congregation.
+23 I have preached righteousness in the great congregation: lo, I have not refrained my lips, O Lord, thou knowest.
 
-11 Withhold not thou thy tender mercies from me, O Lord: let thy loving-kindness and thy truth continually preserve me.
+24 I have not hid thy righteousness within my heart; I have declared thy faithfulness and thy salvation: I have not concealed thy loving-kindness and thy truth from the great congregation.
 
-12 For innumerable evils have compassed me about; mine iniquities have taken hold upon me, so that I am not able to look up: they are more than the hairs of mine head; therefore my heart faileth me.
+25 Withhold not thou thy tender mercies from me, O Lord: let thy loving-kindness and thy truth continually preserve me.
 
-13 Be pleased, O Lord, to deliver me: O Lord, make haste to help me.
+26 For innumerable evils have compassed me about; mine iniquities have taken hold upon me, so that I am not able to look up: they are more than the hairs of mine head; therefore my heart faileth me.
 
-16 Let all those that seek thee rejoice and be glad in thee: let such as love thy salvation say continually, The Lord be magnified.
+27 Be pleased, O Lord, to deliver me: O Lord, make haste to help me.
 
-17 But I am poor and needy; yet the Lord thinketh upon me: thou art my help and my deliverer; make no tarrying, O my God.
+28 Let all those that seek thee rejoice and be glad in thee: let such as love thy salvation say continually, The Lord be magnified.
+
+29 But I am poor and needy; yet the Lord thinketh upon me: thou art my help and my deliverer; make no tarrying, O my God.
 
 ### Selection 15
 
@@ -3634,33 +3638,33 @@ Thy love and peace to every heart. Amen.
 
 #### Psalm 43
 
-1 JUDGE me, O God, and plead my cause against an ungodly nation: O deliver me from the deceitful and unjust man.
+12 JUDGE me, O God, and plead my cause against an ungodly nation: O deliver me from the deceitful and unjust man.
 
-2 For thou art the God of my strength; why dost thou cast me off: why go I mourning because of the oppression of the enemy?
+13 For thou art the God of my strength; why dost thou cast me off: why go I mourning because of the oppression of the enemy?
 
-3 O send out thy light and thy truth; let them lead me: let them bring me unto thy holy hill, and to thy tabernacles.
+14 O send out thy light and thy truth; let them lead me: let them bring me unto thy holy hill, and to thy tabernacles.
 
-4 Then will I go unto the altar of God, unto God my exceeding joy: yea, upon the harp will I praise thee, 6 God my God.'
+15 Then will I go unto the altar of God, unto God my exceeding joy: yea, upon the harp will I praise thee, 6 God my God.'
 
-5 Why art thou cast down, O my soul? and why art thou disquieted within me? hope in God: for I shall yet praise him, who is the health of my countenance, and my God.
+16 Why art thou cast down, O my soul? and why art thou disquieted within me? hope in God: for I shall yet praise him, who is the health of my countenance, and my God.
 
 #### Psalm 44: 1-8
 
-1 WE have heard with our ears, O God, our fathers have told us: what work thou didst in their days, in the times of old.
+17 WE have heard with our ears, O God, our fathers have told us: what work thou didst in their days, in the times of old.
 
-2 How thou didst drive out the heathen with thy hand, and plantedst them: how thou didst afflict the people, and cast them out.
+18 How thou didst drive out the heathen with thy hand, and plantedst them: how thou didst afflict the people, and cast them out.
 
-3 For they got not the land in possession by their own sword, neither did their own arm save them: but thy right hand, and thine arm, and the light of thy countenance, because thou hadst a favour unto them.
+19 For they got not the land in possession by their own sword, neither did their own arm save them: but thy right hand, and thine arm, and the light of thy countenance, because thou hadst a favour unto them.
 
-4 Thou art my King, O God: command deliverances for Jacob.
+20 Thou art my King, O God: command deliverances for Jacob.
 
-5 Through thee will we push down our enemies: through thy name will we tread them under that rise up against us.
+21 Through thee will we push down our enemies: through thy name will we tread them under that rise up against us.
 
-6 For I will not trust in my bow: neither shall my sword save me.
+22 For I will not trust in my bow: neither shall my sword save me.
 
-7 But thou hast saved us from our enemies: and hast put them to shame that hated us.
+23 But thou hast saved us from our enemies: and hast put them to shame that hated us.
 
-8 In God we boast all the day long: and praise thy name for ever.
+24 In God we boast all the day long: and praise thy name for ever.
 
 ### Selection 16
 
@@ -3702,27 +3706,27 @@ Thy love and peace to every heart. Amen.
 
 #### Psalm 46
 
-1 GOD is our refuge and strength: a very present help in trouble.
+18 GOD is our refuge and strength: a very present help in trouble.
 
-2 Therefore will not we fear, though the earth be removed: and though the mountains be carried into the midst of the sea;
+19 Therefore will not we fear, though the earth be removed: and though the mountains be carried into the midst of the sea;
 
-3 Though the waters thereof roar and be troubled: though the mountains shake with the swelling thereof.
+20 Though the waters thereof roar and be troubled: though the mountains shake with the swelling thereof.
 
-4 There is a river, the streams whereof shall make glad the city of God: the holy place of the tabernacles of the Most High.
+21 There is a river, the streams whereof shall make glad the city of God: the holy place of the tabernacles of the Most High.
 
-5 God is in the midst of her; she shall not be moved: God shall help her, and that right early.
+22 God is in the midst of her; she shall not be moved: God shall help her, and that right early.
 
-6 The heathen raged, the kingdoms were moved: he uttered his voice, the earth melted.
+23 The heathen raged, the kingdoms were moved: he uttered his voice, the earth melted.
 
-7 The Lord of hosts is with us: the God of Jacob is our refuge.
+24 The Lord of hosts is with us: the God of Jacob is our refuge.
 
-8 Come, behold the works of the Lord: what desolations he hath made in the earth.
+25 Come, behold the works of the Lord: what desolations he hath made in the earth.
 
-9 He maketh wars to cease unto the end of the earth: he breaketh the bow, and cutteth the spear in sunder: he burneth the chariot in the fire.
+26 He maketh wars to cease unto the end of the earth: he breaketh the bow, and cutteth the spear in sunder: he burneth the chariot in the fire.
 
-10 Be still, and know that I am God: I will be exalted among the heathen, I will be exalted in the earth.
+27 Be still, and know that I am God: I will be exalted among the heathen, I will be exalted in the earth.
 
-11 The Lord of hosts is with us: the God of Jacob is our refuge.
+28 The Lord of hosts is with us: the God of Jacob is our refuge.
 
 ### Selection 17
 
@@ -3748,33 +3752,33 @@ Thy love and peace to every heart. Amen.
 
 #### Psalm 48
 
-1 GREAT is the Lord, and greatly to be praised: in the city of our God, in the mountain of his holiness.
+10 GREAT is the Lord, and greatly to be praised: in the city of our God, in the mountain of his holiness.
 
-2 Beautiful for situation, the joy of the whole earth, is mount Zion: on the sides of the north, the city of the great King.
+11 Beautiful for situation, the joy of the whole earth, is mount Zion: on the sides of the north, the city of the great King.
 
-3 God is known: in her palaces for a refuge.
+12 God is known: in her palaces for a refuge.
 
-4 For, lo, the kings were assembled: they passed by together.
+13 For, lo, the kings were assembled: they passed by together.
 
-5 They saw it, and so they marvelled: they were troubled, and hasted away.
+14 They saw it, and so they marvelled: they were troubled, and hasted away.
 
-6 Fear took hold upon them there, and pain: as of a woman in travail.
+15 Fear took hold upon them there, and pain: as of a woman in travail.
 
-7 Thou breakest the ships of Tarshish: with an east wind.
+16 Thou breakest the ships of Tarshish: with an east wind.
 
-8 As we have heard, so have we seen in the city of the Lord of hosts, in the city of our God: God will establish it for ever.
+17 As we have heard, so have we seen in the city of the Lord of hosts, in the city of our God: God will establish it for ever.
 
-9 We have thought of thy loving-kindness, O God: in the midst of thy temple.
+18 We have thought of thy loving-kindness, O God: in the midst of thy temple.
 
-10 According to thy name, O God, so is thy praise unto the ends of the earth: thy right hand is full of righteousness.
+19 According to thy name, O God, so is thy praise unto the ends of the earth: thy right hand is full of righteousness.
 
-11 Let mount Zion rejoice, let the daughters of Judah be glad: because of thy judgments.
+20 Let mount Zion rejoice, let the daughters of Judah be glad: because of thy judgments.
 
-12 Walk about Zion, and go round about her: tell the towers thereof.
+21 Walk about Zion, and go round about her: tell the towers thereof.
 
-13 Mark ye well her bulwarks, consider her palaces: that ye may tell it to the generation following.
+22 Mark ye well her bulwarks, consider her palaces: that ye may tell it to the generation following.
 
-14 For this God is our God for ever and ever: he will be our guide even unto death.
+23 For this God is our God for ever and ever: he will be our guide even unto death.
 
 ### Selection 18
 
@@ -3836,45 +3840,45 @@ Thy love and peace to every heart. Amen.
 
 #### Psalm 56: 3-4, 8-13
 
-3 WHAT time I am afraid: I will trust in thee.
+7 WHAT time I am afraid: I will trust in thee.
 
-4 In God I will praise his word, in God I have put my trust: I will not fear what flesh can do unto me.
+8 In God I will praise his word, in God I have put my trust: I will not fear what flesh can do unto me.
 
-8 Thou tellest my wanderings; put thou my tears into thy bottle: are they not in thy book?
+9 Thou tellest my wanderings; put thou my tears into thy bottle: are they not in thy book?
 
-9 When I cry unto thee, then shall mine enemies turn back: this I know; for God is for me.
+10 When I cry unto thee, then shall mine enemies turn back: this I know; for God is for me.
 
-10 In God will I praise his word: in the Lord will I praise his word.
+11 In God will I praise his word: in the Lord will I praise his word.
 
-11 In God have I put my trust: I will not be afraid what man can do unto me.
+12 In God have I put my trust: I will not be afraid what man can do unto me.
 
-12 Thy vows are upon me, O God: I will render praises unto thee.
+13 Thy vows are upon me, O God: I will render praises unto thee.
 
-13 For thou hast delivered my soul from death; wilt not thou deliver my feet from falling: that I may walk before God in the light of the living?
+14 For thou hast delivered my soul from death; wilt not thou deliver my feet from falling: that I may walk before God in the light of the living?
 
 #### Psalm 57
 
-1 BE merciful unto me, O God, be merciful unto me, for my soul trusteth in thee: yea, in the shadow of thy wings will I make my refuge, until these calamities be overpast.
+15 BE merciful unto me, O God, be merciful unto me, for my soul trusteth in thee: yea, in the shadow of thy wings will I make my refuge, until these calamities be overpast.
 
-2 I will cry unto God most high: unto God that performeth all things for me.
+16 I will cry unto God most high: unto God that performeth all things for me.
 
-3 He shall send from heaven, and save me from the reproach of him that would swallow me up: God shall send forth his mercy and his truth.
+17 He shall send from heaven, and save me from the reproach of him that would swallow me up: God shall send forth his mercy and his truth.
 
-4 My soul is among lions; and I lie even among them that are set on fire: even the sons of men, whose teeth are spears and arrows, and their tongue a sharp sword.
+18 My soul is among lions; and I lie even among them that are set on fire: even the sons of men, whose teeth are spears and arrows, and their tongue a sharp sword.
 
-5 Be thou exalted, O God, above the heavens: let thy glory be above all the earth.
+19 Be thou exalted, O God, above the heavens: let thy glory be above all the earth.
 
-6 They have prepared a net for my steps; my soul is bowed down: they have digged a pit before me, into the midst whereof they are fallen themselves.
+20 They have prepared a net for my steps; my soul is bowed down: they have digged a pit before me, into the midst whereof they are fallen themselves.
 
-7 My heart is fixed, O God, my heart is fixed: I will sing and give praise.
+21 My heart is fixed, O God, my heart is fixed: I will sing and give praise.
 
-8 Awake up, my glory; awake, psaltery and harp: I myself will awake early.
+22 Awake up, my glory; awake, psaltery and harp: I myself will awake early.
 
-9 I will praise thee, O Lord, among the people: I will sing unto thee among the nations.
+23 I will praise thee, O Lord, among the people: I will sing unto thee among the nations.
 
-10 For thy mercy is great unto the heavens: and thy truth unto the clouds.
+24 For thy mercy is great unto the heavens: and thy truth unto the clouds.
 
-11 Be thou exalted, O God, above the heavens: let thy glory be above all the earth.
+25 Be thou exalted, O God, above the heavens: let thy glory be above all the earth.
 
 ### Selection 20
 
@@ -3898,29 +3902,29 @@ Thy love and peace to every heart. Amen.
 
 #### Psalm 62
 
-1 TRULY my soul waiteth upon God: from him cometh my salvation.
+9 TRULY my soul waiteth upon God: from him cometh my salvation.
 
-2 He only is my rock and my salvation: he is my defense; I shall not be greatly moved.
+10 He only is my rock and my salvation: he is my defense; I shall not be greatly moved.
 
-3 How long will ye imagine mischief against a man: ye shall be slain all of you; as a bowing wall shall ye be, and as a tottering fence.
+11 How long will ye imagine mischief against a man: ye shall be slain all of you; as a bowing wall shall ye be, and as a tottering fence.
 
-4 They only consult to cast him down from his excellency: they delight in lies; they bless with their mouth, but they curse inwardly.
+12 They only consult to cast him down from his excellency: they delight in lies; they bless with their mouth, but they curse inwardly.
 
-5 My soul, wait thou only upon God: for my expectation is from him.
+13 My soul, wait thou only upon God: for my expectation is from him.
 
-6 He only is my rock and my salvation: he is my defense; I shall not be moved.
+14 He only is my rock and my salvation: he is my defense; I shall not be moved.
 
-7 In God is my salvation and my glory: the rock of my strength, and my refuge, is in God.
+15 In God is my salvation and my glory: the rock of my strength, and my refuge, is in God.
 
-8 Trust in him at all times, ye people: pour out your heart before him; God is a refuge for us.
+16 Trust in him at all times, ye people: pour out your heart before him; God is a refuge for us.
 
-9 Surely men of low degree are vanity, and men of high degree are a lie: to be laid in the balance, they are altogether lighter than vanity.
+17 Surely men of low degree are vanity, and men of high degree are a lie: to be laid in the balance, they are altogether lighter than vanity.
 
-10 Trust not in oppression, and become not vain in robbery: if riches increase, set not your heart upon them.
+18 Trust not in oppression, and become not vain in robbery: if riches increase, set not your heart upon them.
 
-11 God hath spoken once; twice have I heard this: that power belongeth unto God.
+19 God hath spoken once; twice have I heard this: that power belongeth unto God.
 
-12 Also unto thee, O Lord, belongeth mercy: for thou renderest to every man according to his work.
+20 Also unto thee, O Lord, belongeth mercy: for thou renderest to every man according to his work.
 
 ### Selection 21
 
@@ -3950,31 +3954,31 @@ Thy love and peace to every heart. Amen.
 
 #### Psalm 65
 
-1 PRAISE waiteth for thee, O God, in Zion: and unto thee shall the vow be performed.
+12 PRAISE waiteth for thee, O God, in Zion: and unto thee shall the vow be performed.
 
-2 O thou that hearest prayer: unto thee shall all flesh come.
+13 O thou that hearest prayer: unto thee shall all flesh come.
 
-3 Iniquities prevail against me: as for our transgressions, thou shalt purge them away.
+14 Iniquities prevail against me: as for our transgressions, thou shalt purge them away.
 
-4 Blessed is the man whom thou choosest, and causest to approach unto thee, that he may dwell in thy courts: we shall be satisfied with the goodness of thy house, even of thy holy temple.
+15 Blessed is the man whom thou choosest, and causest to approach unto thee, that he may dwell in thy courts: we shall be satisfied with the goodness of thy house, even of thy holy temple.
 
-5 By terrible things in righteousness wilt thou answer us, O God of our salvation: who art the confidence of all the ends of the earth, and of them that are afar off upon the sea;
+16 By terrible things in righteousness wilt thou answer us, O God of our salvation: who art the confidence of all the ends of the earth, and of them that are afar off upon the sea;
 
-6 Which by his strength setteth fast the mountains: being girded with power:
+17 Which by his strength setteth fast the mountains: being girded with power:
 
-7 Which stilleth the noise of the seas: the noise of their waves, and the tumult of the people.
+18 Which stilleth the noise of the seas: the noise of their waves, and the tumult of the people.
 
-8 They also that dwell in the uttermost parts are afraid at thy tokens: thou makest the outgoings of the morning and evening to rejoice.
+19 They also that dwell in the uttermost parts are afraid at thy tokens: thou makest the outgoings of the morning and evening to rejoice.
 
-9 Thou visitest the earth, and waterest it; thou greatly enrichest it with the river of God, which is full of water: thou preparest them corn, when thou hast so provided for it.
+20 Thou visitest the earth, and waterest it; thou greatly enrichest it with the river of God, which is full of water: thou preparest them corn, when thou hast so provided for it.
 
-10 Thou waterest the ridges thereof abundantly; thou settlest the furrows thereof: thou makest it soft with showers; thou blessest the springing thereof.
+21 Thou waterest the ridges thereof abundantly; thou settlest the furrows thereof: thou makest it soft with showers; thou blessest the springing thereof.
 
-11 Thou crownest the year with thy goodness: and thy paths drop fatness.
+22 Thou crownest the year with thy goodness: and thy paths drop fatness.
 
-12 They drop upon the pastures of the wilderness: and the little hills rejoice on every side.
+23 They drop upon the pastures of the wilderness: and the little hills rejoice on every side.
 
-13 The pastures are clothed with flocks: the valleys also are covered over with corn; they shout for joy, they also sing.
+24 The pastures are clothed with flocks: the valleys also are covered over with corn; they shout for joy, they also sing.
 
 ### Selection 22
 
@@ -4022,19 +4026,19 @@ Thy love and peace to every heart. Amen.
 
 #### Psalm 67
 
-1 GOD be merciful unto us, and bless us: and cause his face to shine upon us;
+21 GOD be merciful unto us, and bless us: and cause his face to shine upon us;
 
-2 That thy way may be known upon earth: thy saving health among all nations.
+22 That thy way may be known upon earth: thy saving health among all nations.
 
-3 Let the people praise thee, O God: let all the people praise thee.
+23 Let the people praise thee, O God: let all the people praise thee.
 
-4 O let the nations be glad and sing for joy: for thou shalt judge the people righteously, and govern the nations upon earth,
+24 O let the nations be glad and sing for joy: for thou shalt judge the people righteously, and govern the nations upon earth,
 
-5 Let the people praise thee, O God: let all the people praise thee.
+25 Let the people praise thee, O God: let all the people praise thee.
 
-6 Then shall the earth yield her increase: and God, even our own God, shall bless us.
+26 Then shall the earth yield her increase: and God, even our own God, shall bless us.
 
-7 God shall bless us: and all the ends of the earth shall fear him.
+27 God shall bless us: and all the ends of the earth shall fear him.
 
 ### Selection 23
 
@@ -4078,19 +4082,19 @@ Thy love and peace to every heart. Amen.
 
 19 Blessed be the Lord, who daily loadeth us with benefits: even the God of our salvation.
 
-28 Thy God hath commanded thy strength: strengthen, O God, that which thou hast wrought for us.
+20 Thy God hath commanded thy strength: strengthen, O God, that which thou hast wrought for us.
 
-29 Because of thy temple at Jerusalem: shall kings bring presents unto thee.
+21 Because of thy temple at Jerusalem: shall kings bring presents unto thee.
 
-31 Princes shall come out of Egypt: Ethiopia shall soon stretch out her hands unto God.
+22 Princes shall come out of Egypt: Ethiopia shall soon stretch out her hands unto God.
 
-32 Sing unto God, ye kingdoms of the earth: O sing praises unto the Lord;
+23 Sing unto God, ye kingdoms of the earth: O sing praises unto the Lord;
 
-33 To him that rideth upon the heavens of heavens, which were of old: lo, he doth send out his voice, and that a mighty voice.
+24 To him that rideth upon the heavens of heavens, which were of old: lo, he doth send out his voice, and that a mighty voice.
 
-34 Ascribe ye strength unto God: his excellency is over Israel, and his strength is in the clouds.
+25 Ascribe ye strength unto God: his excellency is over Israel, and his strength is in the clouds.
 
-35 O God, thou art terrible out of thy holy places: the God of Israel is he that giveth strength and power unto his people. Blessed be God.
+26 O God, thou art terrible out of thy holy places: the God of Israel is he that giveth strength and power unto his people. Blessed be God.
 
 ### Selection 24
 
@@ -4108,21 +4112,21 @@ Thy love and peace to every heart. Amen.
 
 #### Psalm 71: 1-5, 8-9, 12, 14-24
 
-1 IN thee, O Lord, do I put my trust: let me never be put to confusion.
+6 IN thee, O Lord, do I put my trust: let me never be put to confusion.
 
-2 Deliver me in thy righteousness, and cause me to escape: incline thine ear unto me, and save me.
+7 Deliver me in thy righteousness, and cause me to escape: incline thine ear unto me, and save me.
 
-3 Be thou my strong habitation, whereunto I may continually resort: thou hast given commandment to save me; for thou art my rock and my fortress.
+8 Be thou my strong habitation, whereunto I may continually resort: thou hast given commandment to save me; for thou art my rock and my fortress.
 
-4 Deliver me, O my God, out of the hand of the wicked: out of the hand of the unrighteous and cruel man,
+9 Deliver me, O my God, out of the hand of the wicked: out of the hand of the unrighteous and cruel man,
 
-5 For thou art my hope, O Lord God: thou art my trust from my youth.
+10 For thou art my hope, O Lord God: thou art my trust from my youth.
 
-8 Let my mouth be filled with thy praise: and with thy honour all the day.
+11 Let my mouth be filled with thy praise: and with thy honour all the day.
 
-9 Cast me not off in the time of old age: forsake me not when my strength faileth.
+12 Cast me not off in the time of old age: forsake me not when my strength faileth.
 
-12 O God, be not far from me: O my God, make haste for my help.
+13 O God, be not far from me: O my God, make haste for my help.
 
 14 But I will hope continually: and will yet praise thee more and more.
 
@@ -4360,31 +4364,31 @@ Thy love and peace to every heart. Amen.
 
 #### Psalm 85
 
-1 LORD, thou hast been favourable unto thy land: thou hast brought back the captivity of Jacob.
+13 LORD, thou hast been favourable unto thy land: thou hast brought back the captivity of Jacob.
 
-2 Thou hast forgiven the iniquity of thy people: thou hast covered all their sin.
+14 Thou hast forgiven the iniquity of thy people: thou hast covered all their sin.
 
-3 Thou hast taken away all thy wrath: thou hast turned thyself from the fierceness of thine anger.
+15 Thou hast taken away all thy wrath: thou hast turned thyself from the fierceness of thine anger.
 
-4 Turn us, O God of our salvation: and cause thine anger toward us to cease.
+16 Turn us, O God of our salvation: and cause thine anger toward us to cease.
 
-5 Wilt thou be angry with us for ever: wilt thou draw out thine anger to all generations?
+17 Wilt thou be angry with us for ever: wilt thou draw out thine anger to all generations?
 
-6 Wilt thou not revive us again: that thy people may rejoice in thee?
+18 Wilt thou not revive us again: that thy people may rejoice in thee?
 
-7 Show us thy mercy, O Lord: and grant us thy salvation.
+19 Show us thy mercy, O Lord: and grant us thy salvation.
 
-8 I will hear what God the Lord will speak: for he will speak peace unto his people, and to his saints, but let them not turn again to folly.
+20 I will hear what God the Lord will speak: for he will speak peace unto his people, and to his saints, but let them not turn again to folly.
 
-9 Surely his salvation is nigh them that fear him: that glory may dwell in our land.
+21 Surely his salvation is nigh them that fear him: that glory may dwell in our land.
 
-10 Mercy and truth are met together: righteousness and peace have kissed each other.
+22 Mercy and truth are met together: righteousness and peace have kissed each other.
 
-11 Truth shall spring out of the earth: and righteousness shall look down from heaven.
+23 Truth shall spring out of the earth: and righteousness shall look down from heaven.
 
-12 Yea, the Lord shall give that which is good: and our land shall yield her increase.
+24 Yea, the Lord shall give that which is good: and our land shall yield her increase.
 
-13 Righteousness shall go before him: and shall set us in the way of his steps.
+25 Righteousness shall go before him: and shall set us in the way of his steps.
 
 ### Selection 30
 
@@ -4426,19 +4430,19 @@ Thy love and peace to every heart. Amen.
 
 #### Psalm 87
 
-1 HIS foundation: is in the holy mountains.
+18 HIS foundation: is in the holy mountains.
 
-2 The Lord loveth the gates of Zion: more than all the dwellings of Jacob.
+19 The Lord loveth the gates of Zion: more than all the dwellings of Jacob.
 
-3 Glorious things are spoken of thee: O city of God.
+20 Glorious things are spoken of thee: O city of God.
 
-4 I will make mention of Rahab and Babylon to them that know me: behold Philistia, and Tyre, with Ethiopia; this man was born there.
+21 I will make mention of Rahab and Babylon to them that know me: behold Philistia, and Tyre, with Ethiopia; this man was born there.
 
-5 And of Zion it shall be said, This and that man was born in her: and the Highest himself shall establish her.
+22 And of Zion it shall be said, This and that man was born in her: and the Highest himself shall establish her.
 
-6 The Lord shall count, when he writeth up the people: that this man was born there.
+23 The Lord shall count, when he writeth up the people: that this man was born there.
 
-7 As well the singers as the players on instruments shall be there: all my springs are in thee.
+24 As well the singers as the players on instruments shall be there: all my springs are in thee.
 
 ### Selection 31
 
@@ -4628,15 +4632,15 @@ Thy love and peace to every heart. Amen.
 
 #### Psalm 93
 
-1 THE Lord reigneth, he is clothed with majesty; the Lord is clothed with strength, wherewith he hath girded himself: the world also is stablished, that it cannot be moved.
+16 THE Lord reigneth, he is clothed with majesty; the Lord is clothed with strength, wherewith he hath girded himself: the world also is stablished, that it cannot be moved.
 
-2 Thy throne is established of old: thou art from everlasting.
+17 Thy throne is established of old: thou art from everlasting.
 
-3 The floods have lifted up, O Lord, the floods have lifted up their voice: the floods lift up their waves.
+18 The floods have lifted up, O Lord, the floods have lifted up their voice: the floods lift up their waves.
 
-4 The Lord on high is mightier than the noise of many waters: yea, than the mighty waves of the sea.
+19 The Lord on high is mightier than the noise of many waters: yea, than the mighty waves of the sea.
 
-5 Thy testimonies are very sure: holiness becometh thine house, O Lord, for ever.
+20 Thy testimonies are very sure: holiness becometh thine house, O Lord, for ever.
 
 ### Selection 35
 
@@ -4666,31 +4670,31 @@ Thy love and peace to every heart. Amen.
 
 #### Psalm 96
 
-1 O SING unto the Lord a new song: sing unto the Lord, all the earth.
+12 O SING unto the Lord a new song: sing unto the Lord, all the earth.
 
-2 Sing unto the Lord, bless his name: show forth his salvation from day to day.
+13 Sing unto the Lord, bless his name: show forth his salvation from day to day.
 
-3 Declare his glory among the heathen: his wonders among all people.
+14 Declare his glory among the heathen: his wonders among all people.
 
-4 For the Lord is great, and greatly to be praised: he is to be feared above all gods.
+15 For the Lord is great, and greatly to be praised: he is to be feared above all gods.
 
-5 For all the gods of the nations are idols: but the Lord made the heavens.
+16 For all the gods of the nations are idols: but the Lord made the heavens.
 
-6 Honour and majesty are before him: strength and beauty are in his sanctuary.
+17 Honour and majesty are before him: strength and beauty are in his sanctuary.
 
-7 Give unto the Lord, O ye kindreds of the people: give unto the Lord glory and strength,
+18 Give unto the Lord, O ye kindreds of the people: give unto the Lord glory and strength,
 
-8 Give unto the Lord the glory due unto his name: bring an offering, and come into his courts.
+19 Give unto the Lord the glory due unto his name: bring an offering, and come into his courts.
 
-9 O worship the Lord in the beauty of holiness: fear before him, all the earth.
+20 O worship the Lord in the beauty of holiness: fear before him, all the earth.
 
-10 Say among the heathen that the Lord reigneth: the world also shall be established that it shall not be moved; he shall judge the people righteously.
+21 Say among the heathen that the Lord reigneth: the world also shall be established that it shall not be moved; he shall judge the people righteously.
 
-11 Let the heavens rejoice, and let the earth be glad: let the sea roar, and the fulness thereof.
+22 Let the heavens rejoice, and let the earth be glad: let the sea roar, and the fulness thereof.
 
-12 Let the field be joyful, and all that is therein: then shall all the trees of the wood rejoice
+23 Let the field be joyful, and all that is therein: then shall all the trees of the wood rejoice
 
-13 Before the Lord; for he cometh, for he cometh to judge the earth: he shall judge the world with righteousness, and the people with his truth.
+24 Before the Lord; for he cometh, for he cometh to judge the earth: he shall judge the world with righteousness, and the people with his truth.
 
 ### Selection 36
 
@@ -4722,43 +4726,43 @@ Thy love and peace to every heart. Amen.
 
 #### Psalm 98
 
-1 O SING unto the Lord a new song; for he hath done marvellous things: his right hand, and his holy arm, hath gotten him the victory.
+13 O SING unto the Lord a new song; for he hath done marvellous things: his right hand, and his holy arm, hath gotten him the victory.
 
-2 The Lord hath made known his salvation: his righteousness hath he openly showed in the sight of the heathen.
+14 The Lord hath made known his salvation: his righteousness hath he openly showed in the sight of the heathen.
 
-3 He hath remembered his mercy and his truth toward the house of Israel: all the ends of the earth have seen the salvation of our God.
+15 He hath remembered his mercy and his truth toward the house of Israel: all the ends of the earth have seen the salvation of our God.
 
-4 Make a joyful noise unto the Lord, all the earth: make a loud noise, and rejoice, and sing praise.
+16 Make a joyful noise unto the Lord, all the earth: make a loud noise, and rejoice, and sing praise.
 
-5 Sing unto the Lord with the harp: with the harp, and the voice of a psalm.
+17 Sing unto the Lord with the harp: with the harp, and the voice of a psalm.
 
-6 With trumpets and sound of cornet: make a joyful noise before the Lord, the King.
+18 With trumpets and sound of cornet: make a joyful noise before the Lord, the King.
 
-7 Let the sea roar, and the fulness thereof: the world, and they that dwell therein.
+19 Let the sea roar, and the fulness thereof: the world, and they that dwell therein.
 
-8 Let the floods clap their hands: let the hills be joyful together
+20 Let the floods clap their hands: let the hills be joyful together
 
-9 Before the Lord; for he cometh to judge the earth: with righteousness shall he judge the world, and the people with equity.
+21 Before the Lord; for he cometh to judge the earth: with righteousness shall he judge the world, and the people with equity.
 
 #### Psalm 99
 
-1 THE Lord reigneth; let the people tremble: he sitteth between the cherubim; let the earth be moved.
+22 THE Lord reigneth; let the people tremble: he sitteth between the cherubim; let the earth be moved.
 
-2 The Lord is great in Zion: and he is high above all the people.
+23 The Lord is great in Zion: and he is high above all the people.
 
-3 Let them praise thy great and terrible name: for it is holy.
+24 Let them praise thy great and terrible name: for it is holy.
 
-4 The king's strength also loveth judgment: thou dost establish equity, thou executest judgment and righteousness in Jacob.
+25 The king's strength also loveth judgment: thou dost establish equity, thou executest judgment and righteousness in Jacob.
 
-5 Exalt ye the Lord our God, and worship at his footstool: for he is holy.
+26 Exalt ye the Lord our God, and worship at his footstool: for he is holy.
 
-6 Moses and Aaron among his priests, and Samuel among them that call upon his name: they called upon the Lord, and he answered them.
+27 Moses and Aaron among his priests, and Samuel among them that call upon his name: they called upon the Lord, and he answered them.
 
-7 He spake unto them in the cloudy pillar: they kept his testimonies, and the ordinance that he gave them.
+28 He spake unto them in the cloudy pillar: they kept his testimonies, and the ordinance that he gave them.
 
-8 Thou answeredst them, O Lord our God: thou wast a God that forgavest them, though thou tookest vengeance of their inventions.
+29 Thou answeredst them, O Lord our God: thou wast a God that forgavest them, though thou tookest vengeance of their inventions.
 
-9 Exalt the Lord our God, and worship at his holy hill: for the Lord our God is holy.
+30 Exalt the Lord our God, and worship at his holy hill: for the Lord our God is holy.
 
 ### Selection 37
 
@@ -4776,49 +4780,49 @@ Thy love and peace to every heart. Amen.
 
 #### Psalm 103
 
-1 BLESS the Lord, O my soul: and all that is within me, bless his holy name.
+6 BLESS the Lord, O my soul: and all that is within me, bless his holy name.
 
-2 Bless the Lord, O my soul: and forget not all his benefits:
+7 Bless the Lord, O my soul: and forget not all his benefits:
 
-3 Who forgiveth all thine iniquities: who healeth all thy diseases;
+8 Who forgiveth all thine iniquities: who healeth all thy diseases;
 
-4 Who redeemeth thy life from destruction: who crowneth thee with loving-kindness and tender mercies;
+9 Who redeemeth thy life from destruction: who crowneth thee with loving-kindness and tender mercies;
 
-5 Who satisfieth thy mouth with good things: so that thy youth is renewed like the eagle's.
+10 Who satisfieth thy mouth with good things: so that thy youth is renewed like the eagle's.
 
-6 The Lord executeth righteousness and judgment: for all that are oppressed.
+11 The Lord executeth righteousness and judgment: for all that are oppressed.
 
-7 He made known his ways unto Moses: his acts unto the children of Israel.
+12 He made known his ways unto Moses: his acts unto the children of Israel.
 
-8 The Lord is merciful and gracious: slow to anger, and plenteous in mercy.
+13 The Lord is merciful and gracious: slow to anger, and plenteous in mercy.
 
-9 He will not always chide: neither will he keep his anger for ever.
+14 He will not always chide: neither will he keep his anger for ever.
 
-10 He hath not dealt with us after our sins: nor rewarded us according to our iniquities.
+15 He hath not dealt with us after our sins: nor rewarded us according to our iniquities.
 
-11 For as the heaven is high above the earth: so great is his mercy toward them that fear him.
+16 For as the heaven is high above the earth: so great is his mercy toward them that fear him.
 
-12 As far as the east is from the west: so far hath he removed our transgressions from us.
+17 As far as the east is from the west: so far hath he removed our transgressions from us.
 
-13 Like as a father pitieth his children: so the Lord pitieth them that fear him.
+18 Like as a father pitieth his children: so the Lord pitieth them that fear him.
 
-14 For he knoweth our frame: he remembereth that we are dust.
+19 For he knoweth our frame: he remembereth that we are dust.
 
-15 As for man, his days are as grass: as a flower of the field, so he flourisheth.
+20 As for man, his days are as grass: as a flower of the field, so he flourisheth.
 
-16 For the wind passeth over it, and it is gone: and the place thereof shall know it no more.
+21 For the wind passeth over it, and it is gone: and the place thereof shall know it no more.
 
-17 But the mercy of the Lord is from everlasting to everlasting upon them that fear him: and his righteousness unto children's children;
+22 But the mercy of the Lord is from everlasting to everlasting upon them that fear him: and his righteousness unto children's children;
 
-18 To such as keep his covenant: and to those that remember his commandments to do them.
+23 To such as keep his covenant: and to those that remember his commandments to do them.
 
-19 The Lord hath prepared his throne in the heavens: and his kingdom ruleth over all.
+24 The Lord hath prepared his throne in the heavens: and his kingdom ruleth over all.
 
-20 Bless the Lord, ye his angels, that excel in strength: that do his commandments, hearkening unto the voice of his word.
+25 Bless the Lord, ye his angels, that excel in strength: that do his commandments, hearkening unto the voice of his word.
 
-21 Bless ye the Lord, all ye his hosts: ye ministers of his, that do his pleasure.
+26 Bless ye the Lord, all ye his hosts: ye ministers of his, that do his pleasure.
 
-22 Bless the Lord, all his works in all places of his dominion: bless the Lord, O my soul.
+27 Bless the Lord, all his works in all places of his dominion: bless the Lord, O my soul.
 
 ### Selection 38
 
@@ -4944,49 +4948,51 @@ Thy love and peace to every heart. Amen.
 
 ### Selection 40
 
-#### Psalm 107: 23-43
+#### Psalm 107: 23-40
 
-23 THEY that go down to the sea in ships: that do business in great waters;
+<!--REVIEW: heading reads 23-40 as printed, but the selection continues through verse 43-->
 
-24 These see the works of the Lord: and his wonders in the deep.
+1 THEY that go down to the sea in ships: that do business in great waters;
 
-25 For he commandeth, and raiseth the stormy wind: which lifteth up the waves thereof.
+2 These see the works of the Lord: and his wonders in the deep.
 
-26 They mount up to the heaven, they go down again to the depths: their soul is melted because of trouble.
+3 For he commandeth, and raiseth the stormy wind: which lifteth up the waves thereof.
 
-27 They reel to and fro, and stagger like a drunken man: and are at their wit's end.
+4 They mount up to the heaven, they go down again to the depths: their soul is melted because of trouble.
 
-28 Then they cry unto the Lord in their trouble: and he bringeth them out of their distresses.
+5 They reel to and fro, and stagger like a drunken man: and are at their wit's end.
 
-29 He maketh the storm a calm: so that the waves thereof are still.
+6 Then they cry unto the Lord in their trouble: and he bringeth them out of their distresses.
 
-30 Then are they glad because they be quiet: so he bringeth them unto their desired haven.
+7 He maketh the storm a calm: so that the waves thereof are still.
 
-31 Oh that men would praise the Lord for his goodness: and for his wonderful works to the children of men!
+8 Then are they glad because they be quiet: so he bringeth them unto their desired haven.
 
-32 Let them exalt him also in the congregation of the people: and praise him in the assembly of the elders.
+9 Oh that men would praise the Lord for his goodness: and for his wonderful works to the children of men!
 
-33 He turneth rivers into a wilderness: and the watersprings into dry ground;
+10 Let them exalt him also in the congregation of the people: and praise him in the assembly of the elders.
 
-34 A fruitful land into barrenness: for the wickedness of them that dwell therein.
+11 He turneth rivers into a wilderness: and the watersprings into dry ground;
 
-35 He turneth the wilderness into a standing water: and dry ground into watersprings.
+12 A fruitful land into barrenness: for the wickedness of them that dwell therein.
 
-36 And there he maketh the hungry to dwell: that they may prepare a city for habitation;
+13 He turneth the wilderness into a standing water: and dry ground into watersprings.
 
-37 And sow the fields, and plant vineyards: which may yield fruits of increase.
+14 And there he maketh the hungry to dwell: that they may prepare a city for habitation;
 
-38 He blesseth them also, so that they are multiplied greatly: and suffereth not their cattle to decrease.
+15 And sow the fields, and plant vineyards: which may yield fruits of increase.
 
-39 Again, they are minished and brought low: through oppression, affliction, and sorrow.
+16 He blesseth them also, so that they are multiplied greatly: and suffereth not their cattle to decrease.
 
-40 He poureth contempt upon princes: and causeth them to wander in the wilderness, where there is no way.
+17 Again, they are minished and brought low: through oppression, affliction, and sorrow.
 
-41 Yet setteth he the poor on high from affliction: and maketh him families like a flock,
+18 He poureth contempt upon princes: and causeth them to wander in the wilderness, where there is no way.
 
-42 The righteous shall see it, and rejoice: and all iniquity shall stop her mouth.
+19 Yet setteth he the poor on high from affliction: and maketh him families like a flock,
 
-43 Whoso is wise, and will observe these things: even they shall understand the loving-kindness of the Lord.
+20 The righteous shall see it, and rejoice: and all iniquity shall stop her mouth.
+
+21 Whoso is wise, and will observe these things: even they shall understand the loving-kindness of the Lord.
 
 ### Selection 41
 
@@ -5008,47 +5014,47 @@ Thy love and peace to every heart. Amen.
 
 #### Psalm 111
 
-1 PRAISE ye the Lord. I will praise the Lord with my whole heart: in the assembly of the upright, and in the congregation.
+8 PRAISE ye the Lord. I will praise the Lord with my whole heart: in the assembly of the upright, and in the congregation.
 
-2 The works of the Lord are great: sought out of all them that have pleasure therein.
+9 The works of the Lord are great: sought out of all them that have pleasure therein.
 
-3 His work is honourable and glorious: and his righteousness endureth forever.
+10 His work is honourable and glorious: and his righteousness endureth forever.
 
-4 He hath made his wonderful works to be remembered: the Lord is gracious and full of compassion.
+11 He hath made his wonderful works to be remembered: the Lord is gracious and full of compassion.
 
-5 He hath given meat unto them that fear him: he will ever be mindful of his covenant.
+12 He hath given meat unto them that fear him: he will ever be mindful of his covenant.
 
-6 He hath showed his people the power of his works: that he may give them the heritage of the heathen.
+13 He hath showed his people the power of his works: that he may give them the heritage of the heathen.
 
-7 The works of his hands are verity and judgment: all his commandments are sure.
+14 The works of his hands are verity and judgment: all his commandments are sure.
 
-8 They stand fast for ever and ever: and are done in truth and uprightness.
+15 They stand fast for ever and ever: and are done in truth and uprightness.
 
-9 He sent redemption unto his people: he hath commanded his covenant for ever; holy and reverend is his name.
+16 He sent redemption unto his people: he hath commanded his covenant for ever; holy and reverend is his name.
 
-10 The fear of the Lord is the beginning of wisdom: a good understanding have all they that do his commandments; his praise endureth for ever.
+17 The fear of the Lord is the beginning of wisdom: a good understanding have all they that do his commandments; his praise endureth for ever.
 
 #### Psalm 112
 
-1 PRAISE ye the Lord. Blessed is the man that feareth the Lord: that delighteth greatly in his commandments.
+18 PRAISE ye the Lord. Blessed is the man that feareth the Lord: that delighteth greatly in his commandments.
 
-2 His seed shall be mighty upon earth: the generation of the upright shall be blessed.
+19 His seed shall be mighty upon earth: the generation of the upright shall be blessed.
 
-3 Wealth and riches shall be in his house: and his righteousness endureth for ever.
+20 Wealth and riches shall be in his house: and his righteousness endureth for ever.
 
-4 Unto the upright there ariseth light in the darkness: he is gracious, and full of compassion, and righteous.
+21 Unto the upright there ariseth light in the darkness: he is gracious, and full of compassion, and righteous.
 
-5 A good man showeth favour, and lendeth: he will guide his affairs with discretion.
+22 A good man showeth favour, and lendeth: he will guide his affairs with discretion.
 
-6 Surely he shall not be moved for ever: the righteous shall be in everlasting remembrance.
+23 Surely he shall not be moved for ever: the righteous shall be in everlasting remembrance.
 
-7 He shall not be afraid of evil tidings: his heart is fixed, trusting in the Lord.
+24 He shall not be afraid of evil tidings: his heart is fixed, trusting in the Lord.
 
-8 His heart is established, he shall not be afraid: until he see his desire upon his enemies.
+25 His heart is established, he shall not be afraid: until he see his desire upon his enemies.
 
-9 He hath dispersed, he hath given to the poor: his righteousness endureth for ever; his horn shall be exalted with honour.
+26 He hath dispersed, he hath given to the poor: his righteousness endureth for ever; his horn shall be exalted with honour.
 
-10 The wicked shall see it, and be grieved: he shall gnash with his teeth, and melt away; the desire of the wicked shall perish
+27 The wicked shall see it, and be grieved: he shall gnash with his teeth, and melt away; the desire of the wicked shall perish
 
 ### Selection 42
 
@@ -5068,41 +5074,41 @@ Thy love and peace to every heart. Amen.
 
 #### Psalm 115
 
-1 NOT unto us, O Lord, not unto us, but unto thy name give glory: for thy mercy, and for thy truth's sake.
+7 NOT unto us, O Lord, not unto us, but unto thy name give glory: for thy mercy, and for thy truth's sake.
 
-2 Wherefore should the heathen say: Where is now their God?
+8 Wherefore should the heathen say: Where is now their God?
 
-3 But our God is in the heavens: he hath done whatsoever he hath pleased.
+9 But our God is in the heavens: he hath done whatsoever he hath pleased.
 
-4 Their idols are silver and gold: the work of men's hands.
+10 Their idols are silver and gold: the work of men's hands.
 
-5 They have mouths, but they speak not: eyes have they, but they see not:
+11 They have mouths, but they speak not: eyes have they, but they see not:
 
-6 They have ears, but they hear not: noses have they, but they smell not:
+12 They have ears, but they hear not: noses have they, but they smell not:
 
-7 They have hands, but they handle not: feet have they, but they walk not; neither speak they through their throat.
+13 They have hands, but they handle not: feet have they, but they walk not; neither speak they through their throat.
 
-8 They that make them are like unto them: so is every one that trusteth in them.
+14 They that make them are like unto them: so is every one that trusteth in them.
 
-9 O Israel, trust thou in the Lord: he is their help and their shield.
+15 O Israel, trust thou in the Lord: he is their help and their shield.
 
-10 O house of Aaron, trust in the Lord: he is their help and their shield.
+16 O house of Aaron, trust in the Lord: he is their help and their shield.
 
-11 Ye that fear the Lord, trust in the Lord: he is their help and their shield.
+17 Ye that fear the Lord, trust in the Lord: he is their help and their shield.
 
-12 The Lord hath been mindful of us; he will bless us: he will bless the house of Israel; he will bless the house of Aaron.
+18 The Lord hath been mindful of us; he will bless us: he will bless the house of Israel; he will bless the house of Aaron.
 
-13 He will bless them that fear the Lord: both small and great.
+19 He will bless them that fear the Lord: both small and great.
 
-14 The Lord shall increase you more and more: you and your children.
+20 The Lord shall increase you more and more: you and your children.
 
-15 Ye are blessed of the Lord: which made heaven and earth.
+21 Ye are blessed of the Lord: which made heaven and earth.
 
-16 The heaven, even the heavens, are the Lord's: but the earth hath he given to the children of men.
+22 The heaven, even the heavens, are the Lord's: but the earth hath he given to the children of men.
 
-17 The dead praise not the Lord: neither any that go down into silence.
+23 The dead praise not the Lord: neither any that go down into silence.
 
-18 But we will bless the Lord: from this time forth and for evermore. Praise the Lord.
+24 But we will bless the Lord: from this time forth and for evermore. Praise the Lord.
 
 ### Selection 43
 
@@ -5148,9 +5154,9 @@ Thy love and peace to every heart. Amen.
 
 #### Psalm 117
 
-1 O PRAISE the Lord, all ye nations: praise him, all ye people.
+20 O PRAISE the Lord, all ye nations: praise him, all ye people.
 
-2 For his merciful kindness is great toward us: and the truth of the Lord endureth for ever. Praise ye the Lord.
+21 For his merciful kindness is great toward us: and the truth of the Lord endureth for ever. Praise ye the Lord.
 
 ### Selection 44
 
@@ -5260,7 +5266,7 @@ Thy love and peace to every heart. Amen.
 
 21 Thou hast rebuked the proud that are cursed: which do err from thy commandments.
 
-22 Remove from me reproach and contempt: for I have kept thy testimonies.
+21 Remove from me reproach and contempt:<!--REVIEW: verse number printed '21' twice in the original (should be 22); left as printed--> for I have kept thy testimonies.
 
 23 Princes also did sit and speak against me: but thy servant did meditate in thy statutes.
 
@@ -5270,105 +5276,105 @@ Thy love and peace to every heart. Amen.
 
 #### Psalm 119: 33-48, 89-96
 
-33 TEACH me, O Lord, the way of thy statutes: and I shall keep it unto the end.
+1 TEACH me, O Lord, the way of thy statutes: and I shall keep it unto the end.
 
-34 Give me understanding, and I shall keep thy law: yea, I shall observe it with my whole heart.
+2 Give me understanding, and I shall keep thy law: yea, I shall observe it with my whole heart.
 
-35 Make me to go in the path of thy commandments: for therein do I delight.
+3 Make me to go in the path of thy commandments: for therein do I delight.
 
-36 Incline my heart unto thy testimonies: and not to covetousness.
+4 Incline my heart unto thy testimonies: and not to covetousness.
 
-37 Turn away mine eyes from beholding vanity: and quicken thou me in thy way.
+5 Turn away mine eyes from beholding vanity: and quicken thou me in thy way.
 
-38 Stablish thy word unto thy servant: who is devoted to thy fear.
+6 Stablish thy word unto thy servant: who is devoted to thy fear.
 
-39 Turn away my reproach which I fear: for thy judgments are good.
+7 Turn away my reproach which I fear: for thy judgments are good.
 
-40 Behold, I have longed after thy precepts: quicken me in thy righteousness.
+8 Behold, I have longed after thy precepts: quicken me in thy righteousness.
 
-41 Let thy mercies come also unto me, O Lord: even thy salvation, according to thy word.
+9 Let thy mercies come also unto me, O Lord: even thy salvation, according to thy word.
 
-42 So shall I have wherewith to answer him that reproacheth me: for I trust in thy word.
+10 So shall I have wherewith to answer him that reproacheth me: for I trust in thy word.
 
-43 And take not the word of truth utterly out of my mouth: for I have hoped in thy judgments.
+11 And take not the word of truth utterly out of my mouth: for I have hoped in thy judgments.
 
-44 So shall I keep thy law: continually for ever and ever.
+12 So shall I keep thy law: continually for ever and ever.
 
-45 And I will walk at liberty: for I seek thy precepts.
+13 And I will walk at liberty: for I seek thy precepts.
 
-46 I will speak of thy testimonies also before kings: and will not be ashamed.
+14 I will speak of thy testimonies also before kings: and will not be ashamed.
 
-47 And I will delight myself in thy commandments: which I have loved.
+15 And I will delight myself in thy commandments: which I have loved.
 
-48 My hands also will I lift up unto thy commandments, which I have loved: and I will meditate in thy statutes.
+16 My hands also will I lift up unto thy commandments, which I have loved: and I will meditate in thy statutes.
 
-89 For ever, O Lord: thy word is settled in heaven.
+17 For ever, O Lord: thy word is settled in heaven.
 
-90 Thy faithfulness is unto all generations: thou hast established the earth, and it abideth.
+18 Thy faithfulness is unto all generations: thou hast established the earth, and it abideth.
 
-91 They continue this day according to thine ordinances: for all are thy servants.
+19 They continue this day according to thine ordinances: for all are thy servants.
 
-92 Unless thy law had been my delights: I should then have perished in mine affliction.
+20 Unless thy law had been my delights: I should then have perished in mine affliction.
 
-93 I will never forget thy precepts: for with them thou hast quickened me.
+21 I will never forget thy precepts: for with them thou hast quickened me.
 
-94 I am thine, save me: for I have sought thy precepts.
+22 I am thine, save me: for I have sought thy precepts.
 
-95 The wicked have waited for me to destroy me: but I will consider thy testimonies.
+23 The wicked have waited for me to destroy me: but I will consider thy testimonies.
 
-96 I have seen an end of all perfection: but thy commandment is exceeding broad.
+24 I have seen an end of all perfection: but thy commandment is exceeding broad.
 
 ### Selection 47
 
 #### Psalm 119: 97-120
 
-97 O HOW love I thy law: it is my meditation all the day.
+1 O HOW love I thy law: it is my meditation all the day.
 
-98 Thou through thy commandments hast made me wiser than mine enemies: for they are ever with me.
+2 Thou through thy commandments hast made me wiser than mine enemies: for they are ever with me.
 
-99 I have more understanding than all my teachers: for thy testimonies are my meditation.
+3 I have more understanding than all my teachers: for thy testimonies are my meditation.
 
-100 I understand more than the ancients: because I keep thy precepts.
+4 I understand more than the ancients: because I keep thy precepts.
 
-101 I have refrained my feet from every evil way: that I might keep thy word.
+5 I have refrained my feet from every evil way: that I might keep thy word.
 
-102 I have not departed from thy judgments: for thou hast taught me.
+6 I have not departed from thy judgments: for thou hast taught me.
 
-103 How sweet are thy words unto my taste: yea, sweeter than honey to my mouth.
+7 How sweet are thy words unto my taste: yea, sweeter than honey to my mouth.
 
-104 Through thy precepts I get understanding: therefore I hate every false way
+8 Through thy precepts I get understanding: therefore I hate every false way
 
-105 Thy word is a lamp unto my feet: and a light unto my path.
+9 Thy word is a lamp unto my feet: and a light unto my path.
 
-106 I have sworn, and I will perform it: that I will keep thy righteous judgments.
+10 I have sworn, and I will perform it: that I will keep thy righteous judgments.
 
-107 I am afflicted very much: quicken me, O Lord, according unto thy word.
+11 I am afflicted very much: quicken me, O Lord, according unto thy word.
 
-108 Accept, I beseech thee, the free-will offerings of my mouth, O Lord: and teach me thy judgments.
+12 Accept, I beseech thee, the free-will offerings of my mouth, O Lord: and teach me thy judgments.
 
-109 My soul is continually in my hand: yet do I not forget thy law.
+13 My soul is continually in my hand: yet do I not forget thy law.
 
-110 The wicked have laid a snare for me: yet I erred not from thy precepts.
+14 The wicked have laid a snare for me: yet I erred not from thy precepts.
 
-111 Thy testimonies have I taken as a heritage for ever: for they are the rejoicing of my heart.
+15 Thy testimonies have I taken as a heritage for ever: for they are the rejoicing of my heart.
 
-112 I have inclined mine heart to perform thy statutes always: even unto the end.
+16 I have inclined mine heart to perform thy statutes always: even unto the end.
 
-113 I hate vain thoughts: but thy law do I love.
+17 I hate vain thoughts: but thy law do I love.
 
-114 Thou art my hiding place and my shield: I hope in thy word.
+18 Thou art my hiding place and my shield: I hope in thy word.
 
-115 Depart from me, ye evil doers: for I will keep the commandments of my God.
+19 Depart from me, ye evil doers: for I will keep the commandments of my God.
 
-116 Uphold me according unto thy word, that I may live: and let me not be ashamed of my hope.
+20 Uphold me according unto thy word, that I may live: and let me not be ashamed of my hope.
 
-117 Hold thou me up, and I shall be safe: and I will have respect unto thy statutes continually.
+21 Hold thou me up, and I shall be safe: and I will have respect unto thy statutes continually.
 
-118 Thou hast trodden down all them that err from thy statutes: for their deceit is falsehood.
+22 Thou hast trodden down all them that err from thy statutes: for their deceit is falsehood.
 
-119 Thou puttest away all the wicked of the earth like dross: therefore I love thy testimonies.
+23 Thou puttest away all the wicked of the earth like dross: therefore I love thy testimonies.
 
-120 My flesh trembleth for fear of thee: and I am afraid of thy judgments.
+24 My flesh trembleth for fear of thee: and I am afraid of thy judgments.
 
 ### Selection 48
 
@@ -5392,33 +5398,33 @@ Thy love and peace to every heart. Amen.
 
 #### Psalm 122
 
-1 I WAS glad when they said unto me: Let us go into the house of the Lord.
+9 I WAS glad when they said unto me: Let us go into the house of the Lord.
 
-2 Our feet shall stand within thy gates: O Jerusalem.
+10 Our feet shall stand within thy gates: O Jerusalem.
 
-3 Jerusalem is builded as a city: that is compact together:
+11 Jerusalem is builded as a city: that is compact together:
 
-4 Whither the tribes go up, the tribes of the Lord: unto the testimony of Israel, to give thanks unto the name of the Lord.
+12 Whither the tribes go up, the tribes of the Lord: unto the testimony of Israel, to give thanks unto the name of the Lord.
 
-5 For there are set thrones of judgment: the thrones of the house of David.
+13 For there are set thrones of judgment: the thrones of the house of David.
 
-6 Pray for the peace of Jerusalem: they shall prosper that love thee.
+14 Pray for the peace of Jerusalem: they shall prosper that love thee.
 
-7 Peace be within thy walls: and prosperity within thy palaces.
+15 Peace be within thy walls: and prosperity within thy palaces.
 
-8 For my brethren and companions' sakes: I will now say, Peace be within thee.
+16 For my brethren and companions' sakes: I will now say, Peace be within thee.
 
-9 Because of the house of the Lord our God: I will seek thy good.
+17 Because of the house of the Lord our God: I will seek thy good.
 
 #### Psalm 123
 
-1 UNTO thee lift I up mine eyes: O thou that dwellest in the heavens.
+18 UNTO thee lift I up mine eyes: O thou that dwellest in the heavens.
 
-2 Behold, as the eyes of servants look unto the hand of their masters, and as the eyes of a maiden unto the hand of her mistress: so our eyes wait upon the Lord our God, until that he have mercy upon us.
+19 Behold, as the eyes of servants look unto the hand of their masters, and as the eyes of a maiden unto the hand of her mistress: so our eyes wait upon the Lord our God, until that he have mercy upon us.
 
-3 Have mercy upon us, O Lord, have mercy upon us: for we are exceedingly filled with contempt.
+20 Have mercy upon us, O Lord, have mercy upon us: for we are exceedingly filled with contempt.
 
-4 Our soul is exceedingly filled with the scorning of those that are at ease: and with the contempt of the proud.
+21 Our soul is exceedingly filled with the scorning of those that are at ease: and with the contempt of the proud.
 
 ### Selection 49
 
@@ -5442,41 +5448,41 @@ Thy love and peace to every heart. Amen.
 
 #### Psalm 125
 
-1 THEY that trust in the Lord shall be as mount Zion: which cannot be removed, but abideth for ever.
+9 THEY that trust in the Lord shall be as mount Zion: which cannot be removed, but abideth for ever.
 
-2 As the mountains are round about Jerusalem: so the Lord is round about his people from henceforth even for ever.
+10 As the mountains are round about Jerusalem: so the Lord is round about his people from henceforth even for ever.
 
-3 For the rod of the wicked shall not rest upon the lot of the righteous: lest the righteous put forth their hands unto iniquity,
+11 For the rod of the wicked shall not rest upon the lot of the righteous: lest the righteous put forth their hands unto iniquity,
 
-4 Do good, O Lord, unto those that be good: and to them that are upright in their hearts.
+12 Do good, O Lord, unto those that be good: and to them that are upright in their hearts.
 
-5 As for such as turn aside unto their crooked ways, the Lord shall lead them forth with the workers of iniquity: but peace shall be upon Israel.
+13 As for such as turn aside unto their crooked ways, the Lord shall lead them forth with the workers of iniquity: but peace shall be upon Israel.
 
 #### Psalm 126
 
-1 WHEN the Lord turned again the captivity of Zion: we were like them that dream.
+14 WHEN the Lord turned again the captivity of Zion: we were like them that dream.
 
-2 Then was our mouth filled with laughter, and our tongue with singing: then said they among the heathen. The Lord hath done great things for them.
+15 Then was our mouth filled with laughter, and our tongue with singing: then said they among the heathen. The Lord hath done great things for them.
 
-3 The Lord hath done great things for us: whereof we are glad.
+16 The Lord hath done great things for us: whereof we are glad.
 
-4 Turn again our captivity, O Lord: as the streams in the south.
+17 Turn again our captivity, O Lord: as the streams in the south.
 
-5 They that sow in tears: shall reap in joy.
+18 They that sow in tears: shall reap in joy.
 
-6 He that goeth forth and weepeth, bearing precious seed: shall doubtless come again with rejoicing, bringing his sheaves with him.
+19 He that goeth forth and weepeth, bearing precious seed: shall doubtless come again with rejoicing, bringing his sheaves with him.
 
 #### Psalm 127
 
-1 EXCEPT the Lord build the house, they labour in vain that build it: except the Lord keep the city, the watchman waketh but in vain.
+20 EXCEPT the Lord build the house, they labour in vain that build it: except the Lord keep the city, the watchman waketh but in vain.
 
-2 It is vain for you to rise up early, to sit up late, to eat the bread of sorrows: for so he giveth his beloved sleep.
+21 It is vain for you to rise up early, to sit up late, to eat the bread of sorrows: for so he giveth his beloved sleep.
 
-3 Lo, children are a heritage of the Lord: and the fruit of the womb is his reward.
+22 Lo, children are a heritage of the Lord: and the fruit of the womb is his reward.
 
-4 As arrows are in the hand of a mighty man: so are children of the youth.
+23 As arrows are in the hand of a mighty man: so are children of the youth.
 
-5 Happy is the man that hath his quiver full of them: they shall not be ashamed, but they shall speak with the enemies in the gate.
+24 Happy is the man that hath his quiver full of them: they shall not be ashamed, but they shall speak with the enemies in the gate.
 
 ### Selection 50
 
@@ -5500,49 +5506,49 @@ Thy love and peace to every heart. Amen.
 
 #### Psalm 131
 
-1 LORD, my heart is not haughty, nor mine eyes lofty: neither do I exercise myself in great matters, or in things too high for me.
+9 LORD, my heart is not haughty, nor mine eyes lofty: neither do I exercise myself in great matters, or in things too high for me.
 
-2 Surely I have behaved and quieted myself, as a child that is weaned of his mother: my soul is even as a weaned child.
+10 Surely I have behaved and quieted myself, as a child that is weaned of his mother: my soul is even as a weaned child.
 
-3 Let Israel hope in the Lord: from henceforth and for ever.
+11 Let Israel hope in the Lord: from henceforth and for ever.
 
 #### Psalm 132
 
-1 LORD, remember David: and all his afflictions:
+12 LORD, remember David: and all his afflictions:
 
-2 How he sware unto the Lord: and vowed unto the mighty God of Jacob;
+13 How he sware unto the Lord: and vowed unto the mighty God of Jacob;
 
-3 Surely I will not come into the tabernacle of my house: nor go up into my bed;
+14 Surely I will not come into the tabernacle of my house: nor go up into my bed;
 
-4 I will not give sleep to mine eyes: or slumber to mine eyelids,
+15 I will not give sleep to mine eyes: or slumber to mine eyelids,
 
-5 Until I find out a place for the Lord: a habitation for the mighty God of Jacob.
+16 Until I find out a place for the Lord: a habitation for the mighty God of Jacob.
 
-6 Lo, we heard of it at Ephratah: we found it in the fields of the wood.
+17 Lo, we heard of it at Ephratah: we found it in the fields of the wood.
 
-7 We will go into his tabernacles: we will worship at his footstool.
+18 We will go into his tabernacles: we will worship at his footstool.
 
-8 Arise, O Lord, into thy rest: thou, and the ark of thy strength.
+19 Arise, O Lord, into thy rest: thou, and the ark of thy strength.
 
-9 Let thy priests be clothed with righteousness: and let thy saints shout for joy.
+20 Let thy priests be clothed with righteousness: and let thy saints shout for joy.
 
-10 For thy servant David's sake: turn not away the face of thine anointed.
+21 For thy servant David's sake: turn not away the face of thine anointed.
 
-11 The Lord hath sworn in truth unto David; he will not turn from it: Of the fruit of thy body will I set upon thy throne.
+22 The Lord hath sworn in truth unto David; he will not turn from it: Of the fruit of thy body will I set upon thy throne.
 
-12 If thy children will keep my covenant and my testimony that I shall teach them: their children shall also sit upon thy throne for evermore.
+23 If thy children will keep my covenant and my testimony that I shall teach them: their children shall also sit upon thy throne for evermore.
 
-13 For the Lord hath chosen Zion: he hath desired it for his habitation.
+24 For the Lord hath chosen Zion: he hath desired it for his habitation.
 
-14 This is my rest for ever: here will I dwell; for I have desired it.
+25 This is my rest for ever: here will I dwell; for I have desired it.
 
-15 I will abundantly bless her provision: I will satisfy her poor with bread.
+26 I will abundantly bless her provision: I will satisfy her poor with bread.
 
-16 I will also clothe her priests with salvation: and her saints shall shout aloud for joy.
+27 I will also clothe her priests with salvation: and her saints shall shout aloud for joy.
 
-17 There will I make the horn of David to bud: I have ordained a lamp for mine anointed.
+28 There will I make the horn of David to bud: I have ordained a lamp for mine anointed.
 
-18 His enemies will I clothe with shame: but upon himself shall his crown flourish.
+29 His enemies will I clothe with shame: but upon himself shall his crown flourish.
 
 ### Selection 51
 
@@ -5556,55 +5562,55 @@ Thy love and peace to every heart. Amen.
 
 #### Psalm 134
 
-1 BEHOLD, bless ye the Lord, all ye servants of the Lord: which by night stand in the house of the Lord.
+4 BEHOLD, bless ye the Lord, all ye servants of the Lord: which by night stand in the house of the Lord.
 
-2 Lift up your hands in the sanctuary: and bless the Lord.
+5 Lift up your hands in the sanctuary: and bless the Lord.
 
-3 The Lord that made heaven and earth: bless thee out of Zion.
+6 The Lord that made heaven and earth: bless thee out of Zion.
 
 #### Psalm 135
 
-1 PRAISE ye the Lord. Praise ye the name of the Lord: praise him, O ye servants of the Lord.
+7 PRAISE ye the Lord. Praise ye the name of the Lord: praise him, O ye servants of the Lord.
 
-2 Ye that stand in the house of the Lord: in the courts of the house of our God,
+8 Ye that stand in the house of the Lord: in the courts of the house of our God,
 
-3 Praise the Lord; for the Lord is good: sing praises unto his name; for it is pleasant.
+9 Praise the Lord; for the Lord is good: sing praises unto his name; for it is pleasant.
 
-4 For the Lord hath chosen Jacob unto himself: and Israel for his peculiar treasure.
+10 For the Lord hath chosen Jacob unto himself: and Israel for his peculiar treasure.
 
-5 For I know that the Lord is great: and that our Lord is above all gods.
+11 For I know that the Lord is great: and that our Lord is above all gods.
 
-6 Whatsoever the Lord pleased, that did he in heaven, and in earth: in the seas, and all deep places,
+12 Whatsoever the Lord pleased, that did he in heaven, and in earth: in the seas, and all deep places,
 
-7 He causeth the vapors to ascend from the ends of the earth: he maketh lightnings for the rain; he bringeth the wind out of his treasuries,
+13 He causeth the vapors to ascend from the ends of the earth: he maketh lightnings for the rain; he bringeth the wind out of his treasuries,
 
-8 Who smote the firstborn of Egypt: both of man and beast.
+14 Who smote the firstborn of Egypt: both of man and beast.
 
-9 Who sent tokens and wonders into the midst of thee, O Egypt: upon Pharaoh, and upon all his servants.
+15 Who sent tokens and wonders into the midst of thee, O Egypt: upon Pharaoh, and upon all his servants.
 
-10 Who smote great nations: and slew mighty kings;
+16 Who smote great nations: and slew mighty kings;
 
-11 Sihon king of the Amorites, and Og king of Bashan: and all the kingdoms of Canaan:
+17 Sihon king of the Amorites, and Og king of Bashan: and all the kingdoms of Canaan:
 
-12 And gave their land for a heritage: a heritage unto Israel his people.
+18 And gave their land for a heritage: a heritage unto Israel his people.
 
-13 Thy name, O Lord, endureth for ever: and thy memorial, O Lord, throughout all generations.
+19 Thy name, O Lord, endureth for ever: and thy memorial, O Lord, throughout all generations.
 
-14 For the Lord will judge his people: and he will repent himself concerning his servants.
+20 For the Lord will judge his people: and he will repent himself concerning his servants.
 
-15 The idols of the heathen are silver and gold: the work of men's hands.
+21 The idols of the heathen are silver and gold: the work of men's hands.
 
-16 They have mouths, but they speak not: eyes have they, but they see not;
+22 They have mouths, but they speak not: eyes have they, but they see not;
 
-17 They have ears but they hear not: neither is there any breath in their mouths.
+23 They have ears but they hear not: neither is there any breath in their mouths.
 
-18 They that make them are like unto them: so is every one that trusteth in them.
+24 They that make them are like unto them: so is every one that trusteth in them.
 
-19 Bless the Lord, O house of Israel: bless the Lord, O house of Aaron:
+25 Bless the Lord, O house of Israel: bless the Lord, O house of Aaron:
 
-20 Bless the Lord, O house of Levi: ye that fear the Lord, bless the Lord.
+26 Bless the Lord, O house of Levi: ye that fear the Lord, bless the Lord.
 
-21 Blessed be the Lord out of Zion: which dwelleth at Jerusalem. Praise ye the Lord.
+27 Blessed be the Lord out of Zion: which dwelleth at Jerusalem. Praise ye the Lord.
 
 ### Selection 52
 
@@ -5628,45 +5634,45 @@ Thy love and peace to every heart. Amen.
 
 9 The moon and stars to rule by night: for his mercy endureth for ever.
 
-23 Who remembered us in our low estate: for his mercy endureth for ever.
+10 Who remembered us in our low estate: for his mercy endureth for ever.
 
-24 And hath redeemed us from our enemies: for his mercy endureth for ever.
+11 And hath redeemed us from our enemies: for his mercy endureth for ever.
 
-25 Who giveth food to all flesh: for his mercy endureth for ever.
+12 Who giveth food to all flesh: for his mercy endureth for ever.
 
-26 O give thanks unto the God of heaven: for his mercy endureth for ever.
+13 O give thanks unto the God of heaven: for his mercy endureth for ever.
 
 #### Psalm 137: 1-6
 
-1 BY the rivers of Babylon, there we sat down: yea, we wept, when we remembered Zion.
+14 BY the rivers of Babylon, there we sat down: yea, we wept, when we remembered Zion.
 
-2 We hanged our harps upon the willows: in the midst thereof.
+15 We hanged our harps upon the willows: in the midst thereof.
 
-3 For there they that carried us away captive required of us a song: and they that wasted us required of us mirth, saying, Sing us one of the songs of Zion.
+16 For there they that carried us away captive required of us a song: and they that wasted us required of us mirth, saying, Sing us one of the songs of Zion.
 
-4 How shall we sing the Lord's song: in a strange land?
+17 How shall we sing the Lord's song: in a strange land?
 
-5 If I forget thee, O Jerusalem: let my right hand forget her cunning.
+18 If I forget thee, O Jerusalem: let my right hand forget her cunning.
 
-6 If I do not remember thee, let my tongue cleave to the roof of my mouth: if I prefer not Jerusalem above my chief joy.
+19 If I do not remember thee, let my tongue cleave to the roof of my mouth: if I prefer not Jerusalem above my chief joy.
 
 #### Psalm 138
 
-1 I WILL praise thee with my whole heart: before the gods will I sing praise unto thee.
+20 I WILL praise thee with my whole heart: before the gods will I sing praise unto thee.
 
-2 I will worship toward thy holy temple, and praise thy name for thy loving-kindness and for thy truth: for thou hast magnified thy word above all thy name.
+21 I will worship toward thy holy temple, and praise thy name for thy loving-kindness and for thy truth: for thou hast magnified thy word above all thy name.
 
-3 In the day when I cried thou answeredst me: and strengthenedst me with strength in my soul.
+22 In the day when I cried thou answeredst me: and strengthenedst me with strength in my soul.
 
-4 All the kings of the earth shall praise thee, O Lord: when they hear the words of thy mouth.
+23 All the kings of the earth shall praise thee, O Lord: when they hear the words of thy mouth.
 
-5 Yea, they shall sing in the ways of the Lord: for great is the glory of the Lord.
+24 Yea, they shall sing in the ways of the Lord: for great is the glory of the Lord.
 
-6 Though the Lord be high, yet hath he respect unto the lowly: but the proud he knoweth afar off.
+25 Though the Lord be high, yet hath he respect unto the lowly: but the proud he knoweth afar off.
 
-7 Though I walk in the midst of trouble, thou wilt revive me: thou shalt stretch forth thine hand against the wrath of mine enemies, and thy right hand shall save me.
+26 Though I walk in the midst of trouble, thou wilt revive me: thou shalt stretch forth thine hand against the wrath of mine enemies, and thy right hand shall save me.
 
-8 The Lord will perfect that which concerneth me: thy mercy, O Lord, endureth for ever; forsake not the works of thine own hands.
+27 The Lord will perfect that which concerneth me: thy mercy, O Lord, endureth for ever; forsake not the works of thine own hands.
 
 ### Selection 53
 
@@ -5696,27 +5702,27 @@ Thy love and peace to every heart. Amen.
 
 12 Yea, the darkness hideth not from thee; but the night shineth as the day: the darkness and the light are both alike to thee.
 
-14 I will praise thee; for I am fearfully and wonderfully made: marvellous are thy works; and that my soul knoweth right well.
+13 I will praise thee; for I am fearfully and wonderfully made: marvellous are thy works; and that my soul knoweth right well.
 
-15 My substance was not hid from thee, when I was made in secret: and curiously wrought in the lowest parts of the earth.
+14 My substance was not hid from thee, when I was made in secret: and curiously wrought in the lowest parts of the earth.
 
-16 Thine eyes did see my substance, yet being unperfect: and in thy book all my members were written, which in continuance were fashioned, when as yet there was none of them.
+15 Thine eyes did see my substance, yet being unperfect: and in thy book all my members were written, which in continuance were fashioned, when as yet there was none of them.
 
-17 How precious also are thy thoughts unto me, O God: how great is the sum of them!
+16 How precious also are thy thoughts unto me, O God: how great is the sum of them!
 
-18 If I should count them, they are more in number than the sand: when I awake, I am still with thee.
+17 If I should count them, they are more in number than the sand: when I awake, I am still with thee.
 
-19 Surely thou wilt slay the wicked, O God: depart from me therefore, ye bloody men.
+18 Surely thou wilt slay the wicked, O God: depart from me therefore, ye bloody men.
 
-20 For they speak against thee wickedly: and thine enemies take thy name in vain.
+19 For they speak against thee wickedly: and thine enemies take thy name in vain.
 
-21 Do not I hate them, O Lord, that hate thee: and am not I grieved with those that rise up against thee?
+20 Do not I hate them, O Lord, that hate thee: and am not I grieved with those that rise up against thee?
 
-22 I hate them with perfect hatred: I count them mine enemies.
+21 I hate them with perfect hatred: I count them mine enemies.
 
-23 Search me, O God, and know my heart: try me, and know my thoughts:
+22 Search me, O God, and know my heart: try me, and know my thoughts:
 
-24 And see if there be any wicked way in me: and lead me in the way everlasting.
+23 And see if there be any wicked way in me: and lead me in the way everlasting.
 
 ### Selection 54
 
@@ -5730,43 +5736,43 @@ Thy love and peace to every heart. Amen.
 
 #### Psalm 142
 
-1 I CRIED unto the Lord with my voice: with my voice unto the Lord did I make my supplication.
+4 I CRIED unto the Lord with my voice: with my voice unto the Lord did I make my supplication.
 
-2 I poured out my complaint before him: I showed before him my trouble.
+5 I poured out my complaint before him: I showed before him my trouble.
 
-3 When my spirit was overwhelmed within me, then thou knewest my path: In the way wherein I walked have they privily laid a snare for me.
+6 When my spirit was overwhelmed within me, then thou knewest my path: In the way wherein I walked have they privily laid a snare for me.
 
-4 I looked on my right hand, and beheld, but there was no man that would know me: refuge failed me; no man cared for my soul.
+7 I looked on my right hand, and beheld, but there was no man that would know me: refuge failed me; no man cared for my soul.
 
-5 I cried unto thee, O Lord: I said. Thou art my refuge and my portion in the land of the living.
+8 I cried unto thee, O Lord: I said. Thou art my refuge and my portion in the land of the living.
 
-6 Attend unto my cry; for I am brought very low: deliver me from my persecutors; for they are stronger than I.
+9 Attend unto my cry; for I am brought very low: deliver me from my persecutors; for they are stronger than I.
 
-7 Bring my soul out of prison, that I may praise thy name: the righteous shall compass me about; for thou shalt deal bountifully with me.
+10 Bring my soul out of prison, that I may praise thy name: the righteous shall compass me about; for thou shalt deal bountifully with me.
 
 #### Psalm 143: 1-11
 
-1 HEAR my prayer, O Lord, give ear to my supplications: in thy faithfulness answer me, and in thy righteousness.
+11 HEAR my prayer, O Lord, give ear to my supplications: in thy faithfulness answer me, and in thy righteousness.
 
-2 And enter not into judgment with thy servant: for in thy sight shall no man living be justified.
+12 And enter not into judgment with thy servant: for in thy sight shall no man living be justified.
 
-3 For the enemy hath persecuted my soul: he hath smitten my life down to the ground: he hath made me to dwell in darkness, as those that have been long dead.
+13 For the enemy hath persecuted my soul: he hath smitten my life down to the ground: he hath made me to dwell in darkness, as those that have been long dead.
 
-4 Therefore is my spirit overwhelmed within me: my heart within me is desolate.
+14 Therefore is my spirit overwhelmed within me: my heart within me is desolate.
 
-5 I remember the days of old; I meditate on all thy works: I muse on the work of thy hands.
+15 I remember the days of old; I meditate on all thy works: I muse on the work of thy hands.
 
-6 I stretch forth my hands unto thee: my soul thirsteth after thee, as a thirsty land.
+16 I stretch forth my hands unto thee: my soul thirsteth after thee, as a thirsty land.
 
-7 Hear me speedily, O Lord; my spirit faileth: hide not thy face from me, lest I be like unto them that go down into the pit.
+17 Hear me speedily, O Lord; my spirit faileth: hide not thy face from me, lest I be like unto them that go down into the pit.
 
-8 Cause me to hear thy loving-kindness in the morning; for in thee do I trust: cause me to know the way wherein I should walk; for I lift up my soul unto thee.
+18 Cause me to hear thy loving-kindness in the morning; for in thee do I trust: cause me to know the way wherein I should walk; for I lift up my soul unto thee.
 
-9 Deliver me, O Lord, from mine enemies: I flee unto thee to hide me.
+19 Deliver me, O Lord, from mine enemies: I flee unto thee to hide me.
 
-10 Teach me to do thy will; for thou art my God: thy Spirit is good; lead me into the land of uprightness.
+20 Teach me to do thy will; for thou art my God: thy Spirit is good; lead me into the land of uprightness.
 
-11 Quicken me, O Lord, for thy name's sake: for thy righteousness' sake bring my soul out of trouble.
+21 Quicken me, O Lord, for thy name's sake: for thy righteousness' sake bring my soul out of trouble.
 
 ### Selection 55
 
@@ -5804,25 +5810,25 @@ Thy love and peace to every heart. Amen.
 
 #### Psalm 146
 
-1 PRAISE ye the Lord: Praise the Lord, O my soul.
+16 PRAISE ye the Lord: Praise the Lord, O my soul.
 
-2 While I live will I praise the Lord: I will sing praises unto my God while I have any being,
+17 While I live will I praise the Lord: I will sing praises unto my God while I have any being,
 
-3 Put not your trust in princes: nor in the son of man, in whom there is no help.
+18 Put not your trust in princes: nor in the son of man, in whom there is no help.
 
-4 His breath goeth forth, he returneth to his earth: in that very day his thoughts perish.
+19 His breath goeth forth, he returneth to his earth: in that very day his thoughts perish.
 
-5 Happy is he that hath the God of Jacob for his help: whose hope is in the Lord his God:
+20 Happy is he that hath the God of Jacob for his help: whose hope is in the Lord his God:
 
-6 Which made heaven, and earth, the sea, and all that therein is: which keepeth truth for ever;
+21 Which made heaven, and earth, the sea, and all that therein is: which keepeth truth for ever;
 
-7 Which executeth judgment for the oppressed: which giveth food to the hungry. The Lord looseth the prisoners;
+22 Which executeth judgment for the oppressed: which giveth food to the hungry. The Lord looseth the prisoners;
 
-8 The Lord openeth the eyes of the blind; the Lord raiseth them that are bowed down: the Lord loveth the righteous;
+23 The Lord openeth the eyes of the blind; the Lord raiseth them that are bowed down: the Lord loveth the righteous;
 
-9 The Lord preserveth the strangers; he relieveth the fatherless and widow: but the way of the wicked he turneth upside down.
+24 The Lord preserveth the strangers; he relieveth the fatherless and widow: but the way of the wicked he turneth upside down.
 
-10 The Lord shall reign for ever: even thy God, O Zion, unto all generations. Praise ye the Lord.
+25 The Lord shall reign for ever: even thy God, O Zion, unto all generations. Praise ye the Lord.
 
 ### Selection 56
 
@@ -5948,37 +5954,37 @@ Thy love and peace to every heart. Amen.
 
 #### Psalm 149
 
-1 PRAISE ye the Lord, Sing unto the Lord a new song: and his praise in the congregation of saints.
+15 PRAISE ye the Lord, Sing unto the Lord a new song: and his praise in the congregation of saints.
 
-2 Let Israel rejoice in him that made him: let the children of Zion be joyful in their King.
+16 Let Israel rejoice in him that made him: let the children of Zion be joyful in their King.
 
-3 Let them praise his name in the dance: let them sing praises unto him with the timbrel and harp.
+17 Let them praise his name in the dance: let them sing praises unto him with the timbrel and harp.
 
-4 For the Lord taketh pleasure in his people: he will beautify the meek with salvation.
+18 For the Lord taketh pleasure in his people: he will beautify the meek with salvation.
 
-5 Let the saints be joyful in glory: let them sing aloud upon their beds.
+19 Let the saints be joyful in glory: let them sing aloud upon their beds.
 
-6 Let the high praises of God be in their mouth: and a two-edged sword in their hand;
+20 Let the high praises of God be in their mouth: and a two-edged sword in their hand;
 
-7 To execute vengeance upon the heathen: and punishments upon the people;
+21 To execute vengeance upon the heathen: and punishments upon the people;
 
-8 To bind their kings with chains: and their nobles with fetters of iron;
+22 To bind their kings with chains: and their nobles with fetters of iron;
 
-9 To execute upon them the judgment written: this honour have all his saints. Praise ye the Lord.
+23 To execute upon them the judgment written: this honour have all his saints. Praise ye the Lord.
 
 #### Psalm 150
 
-1 PRAISE ye the Lord. Praise God in his sanctuary: praise him in the firmament of his power.
+24 PRAISE ye the Lord. Praise God in his sanctuary: praise him in the firmament of his power.
 
-2 Praise him for his mighty acts: praise him according to his excellent greatness.
+25 Praise him for his mighty acts: praise him according to his excellent greatness.
 
-3 Praise him with the sound of the trumpet: praise him with the psaltery and harp.
+26 Praise him with the sound of the trumpet: praise him with the psaltery and harp.
 
-4 Praise him with the timbrel and dance: praise him with stringed instruments and organs.
+27 Praise him with the timbrel and dance: praise him with stringed instruments and organs.
 
-5 Praise him upon the loud cymbals: praise him upon the high sounding cymbals.
+28 Praise him upon the loud cymbals: praise him upon the high sounding cymbals.
 
-6 Let everything that hath breath praise the Lord: Praise ye the Lord.
+29 Let everything that hath breath praise the Lord: Praise ye the Lord.
 
 ### Selection 59
 
@@ -6002,47 +6008,47 @@ Thy love and peace to every heart. Amen.
 
 8 He trusted on the Lord that he would deliver him: let him deliver him, seeing he delighted in him.
 
-11 Be not far from me; for trouble is near: for there is none to help.
+9 Be not far from me; for trouble is near: for there is none to help.
 
-12 Many bulls have compassed me: strong bulls of Bashan have beset me round.
+10 Many bulls have compassed me: strong bulls of Bashan have beset me round.
 
-13 They gaped upon me with their mouths: as a ravening and a roaring lion.
+11 They gaped upon me with their mouths: as a ravening and a roaring lion.
 
-14 I am poured out like water, and all my bones are out of joint: my heart is like wax; it is melted in the midst of my bowels.
+12 I am poured out like water, and all my bones are out of joint: my heart is like wax; it is melted in the midst of my bowels.
 
-15 My strength is dried up like a potsherd; and my tongue cleaveth to my jaws: and thou hast brought me into the dust of death.
+13 My strength is dried up like a potsherd; and my tongue cleaveth to my jaws: and thou hast brought me into the dust of death.
 
-16 For dogs have compassed me; the assembly of the wicked have inclosed me: they pierced my hands and my feet.
+14 For dogs have compassed me; the assembly of the wicked have inclosed me: they pierced my hands and my feet.
 
-17 I may tell all my bones: they look and stare upon me.
+15 I may tell all my bones: they look and stare upon me.
 
-18 They part my garments among them: and cast lots upon my vesture.
+16 They part my garments among them: and cast lots upon my vesture.
 
-19 But be not thou far from me, O Lord: O my strength, haste thee to help me.
+17 But be not thou far from me, O Lord: O my strength, haste thee to help me.
 
-20 Deliver my soul from the sword: my darling from the power of the dog.
+18 Deliver my soul from the sword: my darling from the power of the dog.
 
-21 Save me from the lion's mouth: for thou hast heard me from the horns of the unicorns.
+19 Save me from the lion's mouth: for thou hast heard me from the horns of the unicorns.
 
-22 I will declare thy name unto my brethren: in the midst of the congregation will I praise thee.
+20 I will declare thy name unto my brethren: in the midst of the congregation will I praise thee.
 
-23 Ye that fear the Lord, praise him: all ye the seed of Jacob, glorify him; and fear him, all ye the seed of Israel.
+21 Ye that fear the Lord, praise him: all ye the seed of Jacob, glorify him; and fear him, all ye the seed of Israel.
 
-24 For he hath not despised nor abhorred the affliction of the afflicted: neither hath he hid his face from him; but when he cried unto him, he heard.
+22 For he hath not despised nor abhorred the affliction of the afflicted: neither hath he hid his face from him; but when he cried unto him, he heard.
 
-25 My praise shall be of thee in the great congregation: I will pay my vows before them that fear him.
+23 My praise shall be of thee in the great congregation: I will pay my vows before them that fear him.
 
-26 The meek shall eat and be satisfied; they shall praise the Lord that seek him: your heart shall live for ever.
+24 The meek shall eat and be satisfied; they shall praise the Lord that seek him: your heart shall live for ever.
 
-27 All the ends of the world shall remember and turn unto the Lord: and all the kindreds of the nations shall worship before thee.
+25 All the ends of the world shall remember and turn unto the Lord: and all the kindreds of the nations shall worship before thee.
 
-28 For the kingdom is the Lord's: and he is the governor among the nations.
+26 For the kingdom is the Lord's: and he is the governor among the nations.
 
-29 All they that be fat upon earth shall eat and worship; all they that go down to the dust shall bow before him: and none can keep alive his own soul.
+27 All they that be fat upon earth shall eat and worship; all they that go down to the dust shall bow before him: and none can keep alive his own soul.
 
-30 A seed shall serve him: it shall be accounted to the Lord for a generation,
+28 A seed shall serve him: it shall be accounted to the Lord for a generation,
 
-31 They shall come, and shall declare his righteousness: unto a people that shall be born, that he hath done this.
+29 They shall come, and shall declare his righteousness: unto a people that shall be born, that he hath done this.
 
 ### Selection 60
 
@@ -6092,21 +6098,21 @@ Thy love and peace to every heart. Amen.
 
 21 They gave me also gall for my meat: and in my thirst they gave me vinegar to drink.
 
-29 But I am poor and sorrowful: let thy salvation, O God, set me up on high.
+22 But I am poor and sorrowful: let thy salvation, O God, set me up on high.
 
-30 I will praise the name of God with a song: and will magnify him with thanksgiving.
+23 I will praise the name of God with a song: and will magnify him with thanksgiving.
 
-31 This also shall please the Lord: better than an ox or bullock that hath horns and hoofs.
+24 This also shall please the Lord: better than an ox or bullock that hath horns and hoofs.
 
-32 The humble shall see this, and be glad: and your heart shall live that seek God.
+25 The humble shall see this, and be glad: and your heart shall live that seek God.
 
-33 For the Lord heareth the poor: and despiseth not his prisoners,
+26 For the Lord heareth the poor: and despiseth not his prisoners,
 
-34 Let the heaven and earth praise him: the seas, and every thing that moveth therein.
+27 Let the heaven and earth praise him: the seas, and every thing that moveth therein.
 
-35 For God will save Zion, and will build the cities of Judah: that they may dwell there, and have it in possession.
+28 For God will save Zion, and will build the cities of Judah: that they may dwell there, and have it in possession.
 
-36 The seed also of his servants shall inherit it: and they that love his name shall dwell therein.
+29 The seed also of his servants shall inherit it: and they that love his name shall dwell therein.
 
 GLORY be to the Father, and to the Son: and to the Holy Ghost.
 

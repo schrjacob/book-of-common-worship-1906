@@ -81,10 +81,11 @@ The text was built from the Internet Archive scan [bookofcommonwor00pres](https:
 - The opening word of each prayer is in capitals, where the print has a drop capital and small capitals ("ALMIGHTY God…").
 - Hymns, the Grace, the marriage vows and the versicles and responses keep their printed line breaks (a `\` at line end).
 - The 1906 edition's own spellings are kept in the original, e.g. *show*, *defense*, *loving-kindness*, and both *forever* and *for ever* as printed.
-- In the Psalter, each verse carries its Psalm verse number (Psalm 5: 1-7 is numbered 1-7, and Psalm 8 starts again at 1). The 1906 print numbers the verses continuously through each Selection, for responsive reading. Three printing slips were corrected along the way: the misplaced Psalm headings in Selections 8-9, the range of Psalm 107 (23-43, not 23-40), and Psalm 40:5, which the print splits into two numbered lines.
+- **Psalter numbering differs between the editions.** The original keeps the 1906 print's verse numbers, which run continuously through each Selection for responsive reading, along with its printing slips. The light edition numbers each verse by its KJV Psalm verse (Psalm 8 starts again at 1) and corrects those slips: it supplies the missing "Psalm 28: 6-9" heading in Selection 8, puts the right headings on Psalms 29 and 30 in Selection 9, gives Psalm 107 its true range (23-43), and joins Psalm 40:5, which the print splits into two numbered lines. The wording of every verse is the same in both.
+- `{blank}` (or `#### {blank}` for a heading) holds a place in one manuscript where the other has an extra block, so the two stay aligned. It renders as nothing. There are two: the supplied Psalm 28 heading, and the second half of Psalm 40:5.
 - The Creed's footnote and the Ordination margin note are Markdown footnotes (`[^creed1]`, `[^p93]`).
 - Printed page numbers, running heads and line-end hyphenation have been removed.
-- Two places needing an editorial decision are marked with invisible `<!--REVIEW: …-->` comments. Search for `REVIEW` to find them.
+- Five places in the original manuscript needing an editorial decision are marked with invisible `<!--REVIEW: …-->` comments. Search for `REVIEW` to find them.
 
 ## Reviewing the OCR corrections
 
@@ -101,7 +102,7 @@ A `.bak` backup of the manuscript is written first. Some rows can't be applied a
 - [x] Complete text transcribed and proofread
 - [x] Lightly modernized edition
 - [x] Website
-- [ ] Review OCR corrections, the two `REVIEW` items, and the modernization
+- [ ] Review OCR corrections, the five `REVIEW` items, and the modernization
 - [ ] Print edition (KDP)
 
 ## Copyright

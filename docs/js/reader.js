@@ -21,11 +21,12 @@
       var light = b.l !== undefined ? b.l : b.o;
       var same = b.l === undefined;
       var cls = b.c ? ' ' + b.c : '';
+      var blank = (b.ob ? ' row--oblank' : '') + (b.lb ? ' row--lblank' : '');
 
       if (b.k === 'h') {
         var tag = 'h' + Math.min(b.lv, 6);
         out.push(
-          '<div class="row row--h row--h' + b.lv + (same ? ' row--same' : '') + '" id="' + b.id + '">' +
+          '<div class="row row--h row--h' + b.lv + (same ? ' row--same' : '') + blank + '" id="' + b.id + '">' +
             '<' + tag + ' class="o">' + b.o + '</' + tag + '>' +
             '<' + tag + ' class="l">' + light + '</' + tag + '>' +
           '</div>'
@@ -38,7 +39,7 @@
       }
       var wrap = (b.k === 'p' || b.k === 'fn') ? 'p' : 'div';
       out.push(
-        '<div class="row' + (same ? ' row--same' : '') + '">' +
+        '<div class="row' + (same ? ' row--same' : '') + blank + '">' +
           '<' + wrap + ' class="o' + cls + '">' + b.o + '</' + wrap + '>' +
           '<' + wrap + ' class="l' + cls + '">' + light + '</' + wrap + '>' +
         '</div>'
@@ -65,7 +66,8 @@
     var stack = [];
     BOOK.blocks.forEach(function (b) {
       if (b.k !== 'h' || b.lv < 2 || b.lv > 4) return;
-      var node = { id: b.id, lv: b.lv, o: b.o, l: b.l !== undefined ? b.l : b.o, kids: [] };
+      var lt = b.l !== undefined && !b.lb ? b.l : b.o;
+      var node = { id: b.id, lv: b.lv, o: b.ob ? lt : b.o, l: lt, kids: [] };
       while (stack.length && stack[stack.length - 1].lv >= b.lv) stack.pop();
       if (stack.length) stack[stack.length - 1].kids.push(node); else top.push(node);
       stack.push(node);

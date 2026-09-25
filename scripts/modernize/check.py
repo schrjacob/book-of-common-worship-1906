@@ -36,8 +36,13 @@ for i, (o, l) in enumerate(zip(O, L)):
     if m and '\n' not in o:
         lv = len(m.group(1)); ctx = (ctx + [''] * lv)[:lv - 1] + [m.group(2)]
         continue
+    if '{blank}' in (o, l):
+        continue                                   # alignment placeholder
     if is_fixed(o, ctx) or i in orig_restored:
-        if o != l:
+        # the Psalter's verse numbers differ by design (1906: continuous through each Selection;
+        # light: KJV verse numbers), and Psalm 40:5 is one verse in the light edition
+        strip = lambda s: re.sub(r'^\d+ ', '', s)
+        if strip(o) != strip(l) and not strip(l).startswith(strip(o)):
             print(f'[{i}] FIXED BLOCK CHANGED'); problems += 1
         continue
     hits = []
