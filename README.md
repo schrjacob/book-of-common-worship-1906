@@ -81,9 +81,10 @@ The text was built from the Internet Archive scan [bookofcommonwor00pres](https:
 - The opening word of each prayer is in capitals, where the print has a drop capital and small capitals ("ALMIGHTY God…").
 - Hymns, the Grace, the marriage vows and the versicles and responses keep their printed line breaks (a `\` at line end).
 - The 1906 edition's own spellings are kept in the original, e.g. *show*, *defense*, *loving-kindness*, and both *forever* and *for ever* as printed.
+- In the Psalter, each verse carries its Psalm verse number (Psalm 5: 1-7 is numbered 1-7, and Psalm 8 starts again at 1). The 1906 print numbers the verses continuously through each Selection, for responsive reading. Three printing slips were corrected along the way: the misplaced Psalm headings in Selections 8-9, the range of Psalm 107 (23-43, not 23-40), and Psalm 40:5, which the print splits into two numbered lines.
 - The Creed's footnote and the Ordination margin note are Markdown footnotes (`[^creed1]`, `[^p93]`).
 - Printed page numbers, running heads and line-end hyphenation have been removed.
-- Five places needing an editorial decision are marked with invisible `<!--REVIEW: …-->` comments. Search for `REVIEW` to find them.
+- Two places needing an editorial decision are marked with invisible `<!--REVIEW: …-->` comments. Search for `REVIEW` to find them.
 
 ## Reviewing the OCR corrections
 
@@ -100,7 +101,7 @@ A `.bak` backup of the manuscript is written first. Some rows can't be applied a
 - [x] Complete text transcribed and proofread
 - [x] Lightly modernized edition
 - [x] Website
-- [ ] Review OCR corrections, the five `REVIEW` items, and the modernization
+- [ ] Review OCR corrections, the two `REVIEW` items, and the modernization
 - [ ] Print edition (KDP)
 
 ## Copyright
