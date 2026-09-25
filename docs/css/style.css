@@ -127,21 +127,22 @@ a:hover { color: var(--accent-soft); }
   grid-template-columns: 1fr 1fr;
   gap: 2.6rem;
   padding: 0 1.5rem 0.45rem;
-  margin-right: var(--toc-width);
+  margin-left: var(--toc-width);
 }
 .col-label { margin: 0; font-size: 0.78rem; font-style: italic; color: var(--ink-faint); }
 html:not([data-view]) .col-labels,
 [data-view="parallel"] .col-labels { display: grid; }
-.toc-hidden .col-labels { margin-right: 0; }
+.toc-hidden .col-labels { margin-left: 0; }
 
 /* ---------------------------------------------------------------- layout */
 
 .layout {
   display: grid;
-  grid-template-columns: minmax(0, 1fr) var(--toc-width);
+  grid-template-columns: var(--toc-width) minmax(0, 1fr);
   align-items: start;
 }
-.toc-hidden .layout { grid-template-columns: minmax(0, 1fr) 0; }
+.toc-hidden .layout { grid-template-columns: minmax(0, 1fr); }
+.toc { order: -1; }
 
 .book {
   padding: 2rem 1.5rem 6rem;
@@ -266,7 +267,7 @@ hr.rule { border: 0; border-top: 1px solid var(--rule); max-width: 10rem; margin
   top: var(--bar-h, 4.5rem);
   height: calc(100vh - var(--bar-h, 4.5rem));
   overflow-y: auto;
-  border-left: 1px solid var(--rule);
+  border-right: 1px solid var(--rule);
   padding: 1.2rem 1rem 3rem 1.1rem;
   font-size: 0.9rem;
   background: var(--paper);
@@ -334,17 +335,17 @@ hr.rule { border: 0; border-top: 1px solid var(--rule); max-width: 10rem; margin
 
 @media (max-width: 1000px) {
   .layout, .toc-hidden .layout { grid-template-columns: minmax(0, 1fr); }
-  .col-labels { margin-right: 0; }
+  .col-labels { margin-left: 0; }
   .toc, .toc-hidden .toc {
     display: block;
     position: fixed;
-    top: 0; right: 0; bottom: 0;
+    top: 0; left: 0; bottom: 0;
     height: auto;
     width: min(var(--toc-width), 88vw);
     z-index: 40;
-    transform: translateX(100%);
+    transform: translateX(-100%);
     transition: transform 0.2s ease;
-    box-shadow: -6px 0 20px rgba(0, 0, 0, 0.18);
+    box-shadow: 6px 0 20px rgba(0, 0, 0, 0.18);
   }
   .toc-open .toc { transform: translateX(0); }
   .toc-open .toc-backdrop {

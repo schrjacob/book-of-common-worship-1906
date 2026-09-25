@@ -25,7 +25,7 @@ This repository is the working space for editing the text and publishing it, fir
 A single page that opens straight into the book, with:
 
 - **Three views:** *Original*, *Side by side* and *Modernized*. The choice is remembered, and can be linked with `?view=original|parallel|modern`.
-- **Contents panel:** on the right, shown by default and hidden with the **Contents** button. It lists the major parts (`##`), and each expands accordion-style to its sections (`###`) and prayers (`####`). Opening one branch closes the others, and the panel follows along as you scroll. On phones it is a slide-in drawer.
+- **Contents panel:** on the left, shown by default and hidden with the **Contents** button. It lists the major parts (`##`), and each expands accordion-style to its sections (`###`) and prayers (`####`). Opening one branch closes the others, and the panel follows along as you scroll. On phones it is a slide-in drawer.
 - **Other features:** light and dark themes, and deep links to any heading (`#the-invocation`, `#family-prayers`, …).
 
 It is plain HTML, CSS and JavaScript with no dependencies apart from Google Fonts. The design follows the *puritan-parallels* site.
