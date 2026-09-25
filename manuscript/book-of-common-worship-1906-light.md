@@ -12,17 +12,17 @@ COPYRIGHT 1905, 1906, BY THE TRUSTEES OF THE PRESBYTERIAN BOARD OF PUBLICATION A
 
 ## Preface
 
-Among those Churches of the Lord Jesus Christ which follow the Presbyterian rule and order, Liberty of Worship has been esteemed a most precious privilege and inheritance; and while they have been both fearless and faithful to uphold it, against the intrusion of superstitious and burdensome ceremonies, they have also been diligent to seek, in the Public Services of Religion, the golden mean between a too great laxity and a tyrannical uniformity. Such things as are of Divine Institution they have observed in every Ordinance; and other things they have endeavoured to set forth "according to the Rules of Christian Prudence, agreeable to the general Rules of the Word of God."
+Among those Churches of the Lord Jesus Christ which follow the Presbyterian rule and order, Liberty of Worship has been esteemed a most precious privilege and inheritance; and while they have been both fearless and faithful to uphold it, against the intrusion of superstitious and burdensome ceremonies, they have also been diligent to seek, in the Public Services of Religion, the golden mean between a too great laxity and a tyrannical uniformity. Such things as are of Divine Institution they have observed in every Ordinance; and other things they have endeavored to set forth "according to the Rules of Christian Prudence, agreeable to the general Rules of the Word of God."
 
-Although the Books of Common Order, which were prepared for the Reformed Churches, at the beginning, in all countries, contained both prayers and other forms, yet were those books not so much imposed by way of inflexible regulation, as they were offered and accepted as profitable Aids to Worship; and they not only permitted but encouraged the exercise of Free Prayer. In a like spirit the Directory for Worship, adopted at a later time by the Church of Scotland, for the sake of unity with their brethren in the Church of England, so far from establishing an invariable form of Public Worship, expressly provided for a liberty of variation; and it did not in any way prohibit the use of prepared orders and prayers, conformable to the general directions given therein.
+Although the Books of Common Order, which were prepared for the Reformed Churches, at the beginning, in all countries, contained both prayers and other forms, yet those books were not so much imposed by way of inflexible regulation, as they were offered and accepted as profitable Aids to Worship; and they not only permitted but encouraged the exercise of Free Prayer. In a like spirit the Directory for Worship, adopted at a later time by the Church of Scotland, for the sake of unity with their brethren in the Church of England, so far from establishing an invariable form of Public Worship, expressly provided for a liberty of variation; and it did not in any way prohibit the use of prepared orders and prayers, conformable to the general directions given therein.
 
-The same wise and blessed liberty is maintained in the Presbyterian Church in the United States of America even to this day. Accordingly it seemed good to the General Assembly of 1903, hearkening to the desire of many pastors and churches, to appoint a Committee of Ministers and Ruling Elders who should prepare, "in harmony with the Directory for Worship, a Book of Simple Forms and Services, proper and helpful for voluntary use in Presbyterian churches, in the celebration of the Sacraments, in Marriages and Funerals, and in the Conduct of Public Worship." This work has been continued, in faithful obedience, and in humble reliance on the Holy Spirit, through nearly three years of patient labour, and has been submitted, in its progress, to two successive Assemblies. The principles by which the work has been guided were approved, and its completion was ordered. This having been done, so far as God enabled us, in the Book herewith presented, its publication is now "Authorized by the General Assembly, for Voluntary Use in the Churches."
+The same wise and blessed liberty is maintained in the Presbyterian Church in the United States of America even to this day. Accordingly it seemed good to the General Assembly of 1903, heeding the desire of many pastors and churches, to appoint a Committee of Ministers and Ruling Elders who should prepare, "in harmony with the Directory for Worship, a Book of Simple Forms and Services, proper and helpful for voluntary use in Presbyterian churches, in the celebration of the Sacraments, in Marriages and Funerals, and in the Conduct of Public Worship." This work has been continued, in faithful obedience, and in humble reliance on the Holy Spirit, through nearly three years of patient labor, and has been submitted, in its progress, to two successive Assemblies. The principles by which the work has been guided were approved, and its completion was ordered. This having been done, so far as God enabled us, in the Book presented here, its publication is now "Authorized by the General Assembly, for Voluntary Use in the Churches."
 
-This Book of Common Worship is, therefore, not to be taken in any wise as a liturgy imposed by authority. Nor is it a substitute for the Directory for Worship, but rather a supplement to it, wherein the instructions of the Standards are followed on all essential points, and aid is offered, to those who desire it, for the conduct of the Public Services of Religion with reverence and propriety. We have studied earnestly to embody the truths of our Holy Religion in the language of orderly devotion, to the end that by the Sacraments, the stated Ordinances of the Lord's Day, and all the ordinary and occasional offices of the Church, men may be both instructed and confirmed in the faith of Jesus Christ. We have searched the Holy Scriptures, the usage of the Reformed Churches, and the devotional treasures of early Christianity, for the most noble, clear, and moving expressions of the Spirit of Praise and Prayer; and we have added to these ancient and venerable forms and models, such others as might serve, under the guidance of the same Spirit, to give a voice to the present needs, the urgent desires, and the vital hopes of the Church living in these latter days and in the freedom of this Republic.
+This Book of Common Worship is, therefore, not to be taken in any way as a liturgy imposed by authority. Nor is it a substitute for the Directory for Worship, but rather a supplement to it, in which the instructions of the Standards are followed on all essential points, and aid is offered, to those who desire it, for the conduct of the Public Services of Religion with reverence and propriety. We have studied earnestly to embody the truths of our Holy Religion in the language of orderly devotion, to the end that by the Sacraments, the stated Ordinances of the Lord's Day, and all the ordinary and occasional offices of the Church, men may be both instructed and confirmed in the faith of Jesus Christ. We have searched the Holy Scriptures, the usage of the Reformed Churches, and the devotional treasures of early Christianity, for the most noble, clear, and moving expressions of the Spirit of Praise and Prayer; and we have added to these ancient and venerable forms and models such others as might serve, under the guidance of the same Spirit, to give a voice to the present needs, the urgent desires, and the vital hopes of the Church living in these latter days and in the freedom of this Republic.
 
-Concerning the manner in which the different Services are ordered and arranged, and the best way in which they may be used to edification, a few suggestions are offered in the pages immediately following this Preface; and throughout the Book, the careful reader will find that the words of guidance which precede the various parts of the services are designed, not only to mark their spiritual significance, but also to enable all the People to join in the Acts of Worship, that all things may be done decently and in order. The longer and more important rubrics are transcribed from the Directory for Worship of this Church, which disapproves alike of "confining Ministers to set or fixed forms of prayer for public Worship," and of permitting that important service to be disgraced "by mean, irregular, or extravagant effusions." It is to be remembered, therefore, that the forms here offered are to be used only "if the Minister so please," as a help in Common Worship, and not without a constant care and diligence, by "acquaintance with the Holy Scriptures, by meditation, by reading the best writers on the subject, and by a life of communion with God in secret, to endeavour to acquire both the spirit and the gift of Prayer."
+Concerning the manner in which the different Services are ordered and arranged, and the best way in which they may be used to edification, a few suggestions are offered in the pages immediately following this Preface; and throughout the Book, the careful reader will find that the words of guidance which precede the various parts of the services are designed, not only to mark their spiritual significance, but also to enable all the People to join in the Acts of Worship, that all things may be done decently and in order. The longer and more important rubrics are transcribed from the Directory for Worship of this Church, which disapproves alike of "confining Ministers to set or fixed forms of prayer for public Worship," and of permitting that important service to be disgraced "by mean, irregular, or extravagant effusions." It is to be remembered, therefore, that the forms here offered are to be used only "if the Minister so please," as a help in Common Worship, and not without a constant care and diligence, by "acquaintance with the Holy Scriptures, by meditation, by reading the best writers on the subject, and by a life of communion with God in secret, to endeavor to acquire both the spirit and the gift of Prayer."
 
-In the Treasury of Prayers many things have been gathered together which may be not only useful, from time to time, in the conduct of Public Services, but also profitable for reading and study, for use in private devotion, and in that revival of Family Worship which is greatly needed in all our Churches. It is hoped, therefore, that the whole Book, having been prepared with a sincere wish to advance saving knowledge and true piety, may be received, studied, and used, by earnest members of this Church and by faithful Christians elsewhere, in the spirit of candour, simplicity, and brotherly love; devoutly meditating upon the real meaning of the Christian faith, and endeavouring to adorn the Gospel of God our Saviour in all things. And to this end we pray that the Holy Spirit will accompany and bless this Book with His ever-present Grace; that wherever it is used the hearts of men may be truly drawn and led to the Throne of the Divine Mercy; and that all the people may find comfort, joy, and strength as they unite in the Common Worship of God who is revealed in Jesus Christ our adorable Redeemer.
+In the Treasury of Prayers many things have been gathered together which may be not only useful, from time to time, in the conduct of Public Services, but also profitable for reading and study, for use in private devotion, and in that revival of Family Worship which is greatly needed in all our Churches. It is hoped, therefore, that the whole Book, having been prepared with a sincere wish to advance saving knowledge and true piety, may be received, studied, and used, by earnest members of this Church and by faithful Christians elsewhere, in the spirit of candor, simplicity, and brotherly love; devoutly meditating upon the real meaning of the Christian faith, and endeavoring to adorn the Gospel of God our Savior in all things. And to this end we pray that the Holy Spirit will accompany and bless this Book with His ever-present Grace; that wherever it is used the hearts of men may be truly drawn and led to the Throne of the Divine Mercy; and that all the people may find comfort, joy, and strength as they unite in the Common Worship of God who is revealed in Jesus Christ our adorable Redeemer.
 
 THE ASSEMBLY'S COMMITTEE:
 
@@ -107,7 +107,7 @@ Praise Father, Son, and Holy Ghost. Amen.
 
 ¶ *Let the Minister read one of the following Sentences, the People standing.*
 
-¶ *If any church so desire the Service may begin with the Sentences.*
+¶ *If any church so desires, the Service may begin with the Sentences.*
 
 OUR help is in the Name of the Lord, who made heaven and earth. The Lord is nigh unto all them that call upon Him, to all that call upon Him in truth. He will fulfil the desire of them that fear Him: He also will hear their cry, and will save them. (Psalm cxxiv. 8: cxlv. 18, 19.)
 
@@ -119,41 +119,41 @@ The Lord is merciful and gracious, slow to anger, and plenteous in mercy. He hat
 
 Seeing that we have a great High Priest, that is passed into the heavens, Jesus the Son of God: Let us therefore come boldly unto the throne of grace, that we may obtain mercy, and find grace to help in time of need. (Hebrews iv. 14, 16.)
 
-¶ *Then shall the Minister say,*
+¶ *Then the Minister shall say,*
 
 Let us pray.
 
-¶ *Let the People reverently bow down while the Minister leads them in the Invocation, using if he will one of the following Prayers:*
+¶ *Let the People reverently bow down while the Minister leads them in the Invocation, using, if he wishes, one of the following Prayers:*
 
 ### The Invocation
 
-ALMIGHTY God, who of Thy great mercy hast gathered us into Thy visible Church; Grant that we may not swerve from the purity of Thy worship; but so honour Thee, both in spirit and in outward form, that Thy Name may be glorified in us, and we may be true members of Thine only-begotten Son, Jesus Christ our Lord. Amen.
+ALMIGHTY God, who of Your great mercy have gathered us into Your visible Church; Grant that we may not swerve from the purity of Your worship; but so honor You, both in spirit and in outward form, that Your Name may be glorified in us, and we may be true members of Your only-begotten Son, Jesus Christ our Lord. Amen.
 
-ETERNAL God, our Maker and our Lord, Giver of all grace, from whom every good prayer cometh, and who pourest Thy Spirit upon all who seek Thee; Deliver us, when we draw nigh to Thee, from coldness of heart and wanderings of mind; that with steadfast thoughts and pure affections we may worship Thee in spirit and in truth; through Jesus Christ our Lord. Amen.
+ETERNAL God, our Maker and our Lord, Giver of all grace, from whom every good prayer comes, and who pour out Your Spirit upon all who seek You; Deliver us, when we draw near to You, from coldness of heart and wanderings of mind; that with steadfast thoughts and pure affections we may worship You in spirit and in truth; through Jesus Christ our Lord. Amen.
 
-LORD God of heaven and earth, who hast made the Church Thy dwelling-place, and chosen it as Thy rest for ever, and hast taught us in Thy Word not to forsake the assembling of ourselves together; Regard us in Thy mercy, we beseech Thee, and send Thy Holy Spirit upon us; that our worship may prepare us both to serve Thee now, and to glorify Thee hereafter in Thine eternal kingdom; through Jesus Christ our Lord. Amen.
+LORD God of heaven and earth, who have made the Church Your dwelling-place, and chosen it as Your rest for ever, and have taught us in Your Word not to forsake the assembling of ourselves together; Regard us in Your mercy, we pray, and send Your Holy Spirit upon us; that our worship may prepare us both to serve You now, and to glorify You hereafter in Your eternal kingdom; through Jesus Christ our Lord. Amen.
 
-O GOD, who hast promised that in all places where Thou dost record Thy Name, Thou wilt meet with Thy servants to bless them; Fulfil now Thy promise, and make us joyful in Thy house of prayer; that our worship, being offered in the Name of Thy Son and by the guidance of Thy Spirit, may be acceptable unto Thee, and profitable unto ourselves; through our only Mediator and Advocate, Jesus Christ our Lord. Amen.
+O GOD, who have promised that in all places where You record Your Name, You will meet with Your servants to bless them; Fulfill now Your promise, and make us joyful in Your house of prayer; that our worship, being offered in the Name of Your Son and by the guidance of Your Spirit, may be acceptable to You, and profitable to ourselves; through our only Mediator and Advocate, Jesus Christ our Lord. Amen.
 
-ALMIGHTY Lord and everlasting God, whom the heaven of heavens cannot contain, much less the temples which our hands have builded, but who art ever nigh unto the humble and contrite; Shed down Thy Holy Spirit, we beseech Thee, on all here assembled; that, being cleansed and illumined by His grace, we may worthily show forth Thy praise, meekly learn Thy Word, render due thanks for Thy mercies, and obtain a gracious answer to our prayers; through the merits of Jesus Christ our Lord. Amen.
+ALMIGHTY Lord and everlasting God, whom the heaven of heavens cannot contain, much less the temples which our hands have built, but who are ever near to the humble and contrite; Shed down Your Holy Spirit, we pray, on all here assembled; that, being cleansed and illumined by His grace, we may worthily show forth Your praise, meekly learn Your Word, render due thanks for Your mercies, and obtain a gracious answer to our prayers; through the merits of Jesus Christ our Lord. Amen.
 
 ### The Confession of Sins
 
 ¶ *The People may say this Confession with the Minister:*
 
-MOST holy and merciful Father; We acknowledge and confess in Thy Presence: Our sinful nature prone to evil and slothful in good; And all our shortcomings and offenses against Thee. Thou alone knowest how often we have sinned: In wandering from Thy ways; In wasting Thy gifts; In forgetting Thy love. But Thou, O Lord, have pity upon us; Who are ashamed and sorry for all wherein we have displeased Thee. Teach us to hate our errors; Cleanse us from our secret faults; And forgive our sins; For the sake of Thy dear Son our Saviour. And O most holy and loving Father; Send Thy purifying grace into our hearts, we beseech Thee; That we may henceforth live in Thy light and walk in Thy ways; According to the commandments of Jesus Christ our Lord. Amen.
+MOST holy and merciful Father; We acknowledge and confess in Your Presence: Our sinful nature prone to evil and slothful in good; And all our shortcomings and offenses against You. You alone know how often we have sinned: In wandering from Your ways; In wasting Your gifts; In forgetting Your love. But You, O Lord, have pity upon us; Who are ashamed and sorry for all in which we have displeased You. Teach us to hate our errors; Cleanse us from our secret faults; And forgive our sins; For the sake of Your dear Son our Savior. And O most holy and loving Father; Send Your purifying grace into our hearts, we pray; That we may from now on live in Your light and walk in Your ways; According to the commandments of Jesus Christ our Lord. Amen.
 
 ### The Assurance of Pardon
 
 ¶ *To be said by the Minister, the People still bowing down.*
 
-ALMIGHTY God, who doth freely pardon all who repent and turn to Him; Now fulfil in every contrite heart the promise of redeeming grace; remitting all our sins, and cleansing us from an evil conscience; through the perfect sacrifice of Christ our Lord; And keep us evermore in the peace and joy of a holy life; that we may love and serve Him always; In the Name of the Father, the Son, and the Holy Ghost. Amen.
+ALMIGHTY God, who freely pardons all who repent and turn to Him; Now fulfill in every contrite heart the promise of redeeming grace; remitting all our sins, and cleansing us from an evil conscience; through the perfect sacrifice of Christ our Lord; And keep us evermore in the peace and joy of a holy life; that we may love and serve Him always; In the Name of the Father, the Son, and the Holy Spirit. Amen.
 
 ¶ *Or this:*
 
 GOD so loved the world, that He gave His only-begotten Son, that whosoever believeth in Him should not perish, but have everlasting life.
 
-Hear the gracious words of our Lord Jesus Christ unto all that truly repent and turn to Him:
+Hear the gracious words of our Lord Jesus Christ to all that truly repent and turn to Him:
 
 Come unto Me, all ye that labour and are heavy laden, and I will give you rest.
 
@@ -187,11 +187,11 @@ As it was in the beginning, is now, and ever shall be: world without end. Amen.
 
 ¶ *Before each reading let the Minister say, Hear the Holy Scripture as it is written in such a chapter of such a book: and after the reading, The Lord bless to us the reading of His Holy Word.*
 
-¶ *If the Old Testament reading be the Ten Commandments, after them the Minister shall read St. Matthew xxii. 37-40, saying before he reads, Hear also the Summary of the Law by our Lord Jesus Christ.*
+¶ *If the Old Testament reading is the Ten Commandments, after them the Minister shall read St. Matthew xxii. 37-40, saying before he reads, Hear also the Summary of the Law by our Lord Jesus Christ.*
 
 ### A Hymn of Praise
 
-¶ *Here let the People stand up and praise God with the spirit and with the understanding, making melody with their voices as well as with their hearts, unto the Lord. And at the close of the Hymn let them remain standing and join with the Minister in their Confession of Faith.*
+¶ *Here let the People stand up and praise God with the spirit and with the understanding, making melody with their voices as well as with their hearts, to the Lord. And at the close of the Hymn let them remain standing and join with the Minister in their Confession of Faith.*
 
 ### The Creed
 
@@ -201,7 +201,7 @@ And in Jesus Christ His only Son, our Lord; Who was conceived by the Holy Ghost,
 
 I believe in the Holy Ghost; The Holy Catholic Church; The Communion of Saints; The Forgiveness of sins; The Resurrection of the body; and the Life everlasting. Amen.
 
-¶ *Then shall the Minister say,*
+¶ *Then the Minister shall say,*
 
 Let us pray.
 
@@ -211,17 +211,17 @@ Let us pray.
 
 ### The General Prayer
 
-¶ *The Minister, leading the People in their Common Prayers, shall come with a heart prepared to offer unto God —*
+¶ *The Minister, leading the People in their Common Prayers, shall come with a heart prepared to offer to God —*
 
 Adorations: for His glorious perfection, and for the revelation of Himself in His works, in His Word, and in His Son, Jesus Christ:
 
 Thanksgivings: for all mercies of every kind, general and particular, spiritual and temporal, common and special; above all, for Jesus Christ, His unspeakable gift, and the hope of eternal life through Him.
 
-Supplications: for the supply of all our needs temporal and spiritual, and for the aid and comfort of the Holy Ghost in all our duties and trials:
+Supplications: for the supply of all our needs temporal and spiritual, and for the aid and comfort of the Holy Spirit in all our duties and trials:
 
 Intercessions: for the whole world of mankind; remembering especially our country and all who are invested with civil authority; the Church Universal and that with which we are particularly connected; all missionaries and ministers of the Gospel; and all others who are seeking to do good on earth; all poor and sick and sorrowful people, (especially those for whom our prayers are asked;) all little children and the youth assembled in schools and colleges; those who are in the midst of great danger or temptation; and all who are bound to us by ties of kinship or affection:
 
-¶ *In any or all of these Adorations, Thanksgivings, Supplications, and Intercessions, the Minister, if he will, may use any of the Prayers given in this Book, under the title of Treasury of Prayers. Or he may carefully order his thoughts and compose his spirit to utter with propriety the desires and petitions of the People, remembering what is suitable and necessary for them in their Common Worship. At the end of the General Prayer the Minister and People shall say together the Lord's Prayer.*
+¶ *In any or all of these Adorations, Thanksgivings, Supplications, and Intercessions, the Minister, if he wishes, may use any of the Prayers given in this Book, under the title of Treasury of Prayers. Or he may carefully order his thoughts and compose his spirit to utter with propriety the desires and petitions of the People, remembering what is suitable and necessary for them in their Common Worship. At the end of the General Prayer the Minister and People shall say together the Lord's Prayer.*
 
 ### The Lord's Prayer
 
@@ -229,7 +229,7 @@ OUR Father which art in heaven, Hallowed be Thy Name. Thy kingdom come. Thy will
 
 ### The Offering
 
-¶ *The bringing of offerings for the service of God is to be performed as an Act of Worship. Let the Minister, having made such Announcements as are needful and fitting, then say, Let us make our Offering to Almighty God for (naming the cause). If the choir sing a Canticle or Anthem it should be one proper for the occasion.*
+¶ *The bringing of offerings for the service of God is to be performed as an Act of Worship. Let the Minister, having made such Announcements as are needful and fitting, then say, Let us make our Offering to Almighty God for (naming the cause). If the choir sings a Canticle or Anthem it should be one proper for the occasion.*
 
 ¶ *When the gifts are brought to the Table, the Minister shall dedicate them to God with a brief Prayer for His blessing; the church-officers who have gathered the gifts standing, and the congregation bowing down.*
 
@@ -237,13 +237,13 @@ OUR Father which art in heaven, Hallowed be Thy Name. Thy kingdom come. Thy will
 
 ### A Prayer of Dedication
 
-O GOD, most merciful and gracious, of whose bounty we have all received; We beseech Thee to accept this Offering of Thy people. Remember in Thy love those who have brought it, and those for whom it is given; and so follow it with Thy blessing that it may promote peace and good-will among men, and advance the kingdom of our Lord and Saviour Jesus Christ. Amen.
+O GOD, most merciful and gracious, of whose bounty we have all received; We ask You to accept this Offering of Your people. Remember in Your love those who have brought it, and those for whom it is given; and so follow it with Your blessing that it may promote peace and good will among men, and advance the kingdom of our Lord and Savior Jesus Christ. Amen.
 
 ¶ *Then let the People stand up and sing*
 
 ### A Hymn
 
-¶ *Then the Minister, taking his text from the Word of God, and remembering that it is his office to instruct men in divine Truth, to hold forth Christ crucified as their Saviour, and to incite them to Christian faith and duty, shall preach*
+¶ *Then the Minister, taking his text from the Word of God, and remembering that it is his office to instruct men in divine Truth, to hold forth Christ crucified as their Savior, and to incite them to Christian faith and duty, shall preach*
 
 ### The Sermon
 
@@ -251,25 +251,25 @@ O GOD, most merciful and gracious, of whose bounty we have all received; We bese
 
 ### A Hymn
 
-¶ *Then shall the Minister say,*
+¶ *Then the Minister shall say,*
 
 Let us pray.
 
-¶ *Then let the People reverently bow down while the Minister leads them in Prayer, using if he so desire one of the following as*
+¶ *Then let the People reverently bow down while the Minister leads them in Prayer, using, if he so desires, one of the following as*
 
 ### The Closing Prayer
 
-O GOD, the Protector of all that trust in Thee, without whom nothing is strong, nothing is holy; Increase and multiply upon us Thy mercy, that, Thou being our ruler and guide, we may so pass through things temporal, that we finally lose not the things eternal. Grant this, O heavenly Father, for Jesus Christ's sake, our Lord. Amen.
+O GOD, the Protector of all that trust in You, without whom nothing is strong, nothing is holy; Increase and multiply upon us Your mercy, that, You being our ruler and guide, we may so pass through things temporal that we do not finally lose the things eternal. Grant this, O heavenly Father, for Jesus Christ's sake, our Lord. Amen.
 
-O LORD, the Author of spiritual life, who hast given unto us the good seed of Thy Word; Grant that we may receive it into honest hearts: and so guard it by Thy grace from the wiles of Satan and the cares of this life, that the faith and hope and love which Thou hast begotten, may be in us the beginning of life eternal; through Jesus Christ our Lord. Amen.
+O LORD, the Author of spiritual life, who have given to us the good seed of Your Word; Grant that we may receive it into honest hearts: and so guard it by Your grace from the wiles of Satan and the cares of this life, that the faith and hope and love which You have begotten may be in us the beginning of life eternal; through Jesus Christ our Lord. Amen.
 
-O GOD, who hast sounded in our ears Thy divine and saving oracles; Enlighten the souls of us sinners to the full understanding of what has been spoken, that we may be not only hearers of spiritual words, but also doers of good works, following after faith unfeigned, blameless life, and irreproachable conduct; through Jesus Christ our Lord. Amen.
+O GOD, who have sounded in our ears Your divine and saving oracles; Enlighten the souls of us sinners to the full understanding of what has been spoken, that we may be not only hearers of spiritual words, but also doers of good works, following after faith unfeigned, blameless life, and irreproachable conduct; through Jesus Christ our Lord. Amen.
 
-MOST merciful God, we beseech Thee to grant unto us, that we may earnestly desire, wisely search out, truly perceive, and perfectly fulfil those things which are well pleasing in Thy sight, to the praise and glory of Thy Name. Amen.
+MOST merciful God, we ask You to grant us that we may earnestly desire, wisely search out, truly perceive, and perfectly fulfill those things which are well pleasing in Your sight, to the praise and glory of Your Name. Amen.
 
-O GOD, who art the Author of peace and Lover of concord, in knowledge of whom standeth our eternal life, whose service is perfect freedom; Defend us Thy humble servants in all assaults of our enemies; that we, surely trusting in Thy defense, may not fear the power of any adversaries; through the might of Jesus Christ our Lord. Amen.
+O GOD, who are the Author of peace and Lover of concord, in knowledge of whom stands our eternal life, whose service is perfect freedom; Defend us, Your humble servants, in all assaults of our enemies; that we, surely trusting in Your defense, may not fear the power of any adversaries; through the might of Jesus Christ our Lord. Amen.
 
-ALMIGHTY God, who hast given us grace at this time with one accord to make our common supplications unto Thee: and dost promise that when two or three are gathered together in Thy Name Thou wilt grant their requests; Fulfil now, O Lord, the desires and petitions of Thy servants, as may be most expedient for them; granting us in this world knowledge of Thy truth, and in the world to come life everlasting. Amen.
+ALMIGHTY God, who have given us grace at this time with one accord to make our common supplications to You, and who promise that when two or three are gathered together in Your Name You will grant their requests; Fulfill now, O Lord, the desires and petitions of Your servants, as may be most expedient for them; granting us in this world knowledge of Your truth, and in the world to come life everlasting. Amen.
 
 ¶ *The People remaining in the posture of prayer, the Minister shall pronounce*
 
@@ -281,9 +281,9 @@ THE grace of the Lord Jesus Christ, and the love of God, and the communion of th
 
 THE peace of God, which passeth all understanding, keep your hearts and minds in the knowledge and love of God, and of His Son Jesus Christ our Lord; and the blessing of God Almighty, the Father, the Son, and the Holy Ghost, be amongst you, and remain with you always. Amen.
 
-¶ *After the Benediction it is fitting that the Minister and People remain in silent prayer, beseeching God that none may leave His House without a blessing.*
+¶ *After the Benediction it is fitting that the Minister and People remain in silent prayer, asking God that none may leave His House without a blessing.*
 
-¶ *Note that the last Hymn may be sung after the Prayer if such be the wish and usage of any church.*
+¶ *Note that the last Hymn may be sung after the Prayer if such is the wish and usage of any church.*
 
 ## The Order of Evening Service on the Lord's Day
 
@@ -313,17 +313,17 @@ I will arise and go to my father, and will say unto him, Father, I have sinned a
 
 Let us pray.
 
-¶ *Let the People reverently bow down while the Minister leads them in the Invocation and Confession, using if he will one of the following Prayers:*
+¶ *Let the People reverently bow down while the Minister leads them in the Invocation and Confession, using, if he wishes, one of the following Prayers:*
 
 ### The Invocation and Confession
 
-O GOD, the Father of lights, with whom is no variableness nor shadow of turning; We beseech Thee to look in mercy upon us, Thy sinful and wayward children: and so direct the eyes of our faith unto Thee, that at all times we may receive a heavenly illumination, through Thy Word and Spirit; and walk securely, in confidence and peace, amid the shadows of this mortal life. And more especially at this hour of the evening sacrifice, bestow upon us the pardon of our sins, and such a vision of the truth as it is in Jesus, that the darkness of evil may be driven from our hearts, and we may render unto Thee songs of praise; through Christ our Lord. Amen.
+O GOD, the Father of lights, with whom is no variableness, neither shadow of turning; We ask You to look in mercy upon us, Your sinful and wayward children: and so direct the eyes of our faith to You, that at all times we may receive a heavenly illumination, through Your Word and Spirit; and walk securely, in confidence and peace, amid the shadows of this mortal life. And more especially at this hour of the evening sacrifice, bestow upon us the pardon of our sins, and such a vision of the truth as it is in Jesus, that the darkness of evil may be driven from our hearts, and we may render to You songs of praise; through Christ our Lord. Amen.
 
-ETERNAL God, in whom we live and move and have our being, whose face is hidden from us by our sins, and whose mercy we forget in the blindness of our hearts; Cleanse us, we beseech Thee, from all the defilements of this day, and deliver us from all proud thoughts and vain desires; that with lowliness and meekness we may draw near to Thee in prayer, confessing our sins, confiding in Thy grace, and finding in Thee our refuge and our strength, our hope and our salvation; through Jesus Christ Thy Son. Amen.
+ETERNAL God, in whom we live and move and have our being, whose face is hidden from us by our sins, and whose mercy we forget in the blindness of our hearts; Cleanse us, we pray, from all the defilements of this day, and deliver us from all proud thoughts and vain desires; that with lowliness and meekness we may draw near to You in prayer, confessing our sins, confiding in Your grace, and finding in You our refuge and our strength, our hope and our salvation; through Jesus Christ Your Son. Amen.
 
-ALMIGHTY and most merciful God, who hast appointed our portion of labour, that we may serve Thee while it is day; and by whose ordinance the weariness of night cometh, that we may seek our rest in Thee; We beseech Thee now to lead and draw our hearts unto Thy dear Son, that, confessing our sin and weakness, we may receive of Him the grace promised unto the heavy-laden; and, being forgiven by His mercy, comforted by His Word, refreshed by His Spirit, and lifted up by His fellowship, we may find in this hour of worship a blessing for our souls; through Jesus Christ our Lord. Amen.
+ALMIGHTY and most merciful God, who have appointed our portion of labor, that we may serve You while it is day; and by whose ordinance the weariness of night comes, that we may seek our rest in You; We ask You now to lead and draw our hearts to Your dear Son, that, confessing our sin and weakness, we may receive of Him the grace promised to the heavy-laden; and, being forgiven by His mercy, comforted by His Word, refreshed by His Spirit, and lifted up by His fellowship, we may find in this hour of worship a blessing for our souls; through Jesus Christ our Lord. Amen.
 
-O GOD, Light of the hearts that see Thee, and Life of the souls that love Thee, and Strength of the thoughts that seek Thee; from whom to be turned away is to fall, to whom to be turned is to rise, and in whom to abide is to stand fast for ever; Grant us now Thy forgiveness and blessing, as we are here assembled to offer up our confession and supplications; and though we are unworthy to approach Thee, or to ask anything of Thee at all, vouchsafe to hear and to answer us, for the sake of our great High Priest and Advocate, Jesus Christ, our Lord. Amen.
+O GOD, Light of the hearts that see You, and Life of the souls that love You, and Strength of the thoughts that seek You; from whom to be turned away is to fall, to whom to be turned is to rise, and in whom to abide is to stand fast for ever; Grant us now Your forgiveness and blessing, as we are here assembled to offer up our confession and supplications; and though we are unworthy to approach You, or to ask anything of You at all, be pleased to hear and to answer us, for the sake of our great High Priest and Advocate, Jesus Christ, our Lord. Amen.
 
 ¶ *The Prayer may close with these Petitions of Holy Scripture, to be said responsively by the Minister and People, still bowing down.*
 
@@ -364,7 +364,7 @@ For Thou only art holy: Thou only art the Lord.
 
 Thou only, O Christ, with the Holy Ghost: art most high in the glory of God the Father. Amen.
 
-¶ *Note that, if any church so desire, a Hymn may be sung in place of the Psalter.*
+¶ *Note that, if any church so desires, a Hymn may be sung in place of the Psalter.*
 
 ### The Public Reading of the Holy Scriptures
 
@@ -380,19 +380,19 @@ Let us pray.
 
 ### The General Prayer
 
-¶ *The Minister, leading the People in their Common Prayers, shall offer unto God such Adorations and Thanksgivings; such Intercessions for the Church, for the State, and for all men, especially for those who are out of Christ and those who are in any peril or distress; and such Supplications for enlightenment, protection, and guidance; as he may think fitting for this Service. And if he will, he may use any of the Prayers given in this Book (under the title of Treasury of Prayers), or those here following:*
+¶ *The Minister, leading the People in their Common Prayers, shall offer to God such Adorations and Thanksgivings; such Intercessions for the Church, for the State, and for all men, especially for those who are out of Christ and those who are in any peril or distress; and such Supplications for enlightenment, protection, and guidance; as he may think fitting for this Service. And if he wishes, he may use any of the Prayers given in this Book (under the title of Treasury of Prayers), or those here following:*
 
-O GOD, in glory exalted, and in mercy ever-blessed: We magnify Thee, we praise Thee, we give thanks unto Thee for Thy bountiful providence, for all the blessings of this present life, and all the hopes of a better life to come. Let the memory of Thy goodness, we beseech Thee, fill our hearts with joy and thankfulness; and let no unworthiness of ours provoke Thee to withhold from us any needed good, seeing that all Thy blessings come not by our desert, but only through the merit and mediation of Jesus Christ our Lord. Amen.
+O GOD, in glory exalted, and in mercy ever-blessed: We magnify You, we praise You, we give thanks to You for Your bountiful providence, for all the blessings of this present life, and all the hopes of a better life to come. Let the memory of Your goodness, we pray, fill our hearts with joy and thankfulness; and let no unworthiness of ours provoke You to withhold from us any needed good, seeing that all Your blessings come not by our deserving, but only through the merit and mediation of Jesus Christ our Lord. Amen.
 
-O LORD of heaven and earth, who hast promised to reveal Thy glory by Jesus Christ among all nations; Remember, we beseech Thee, Thy holy Church throughout all the world. Unite all who profess and call themselves Christians in the bond of a living faith as the body of Christ, and so replenish them and us with the grace of Thy Holy Spirit, that we may bring forth abundantly the fruits of peace and good works, and may turn many to righteousness through the preaching of the Gospel. And grant that, having persevered in the way of godliness to the end, we may, with prophets, apostles, martyrs, confessors, and saints of all ages, come into full communion with Thee, and with one another, in Thine eternal and glorious kingdom; through our Lord and Saviour Jesus Christ. Amen.
+O LORD of heaven and earth, who have promised to reveal Your glory by Jesus Christ among all nations; Remember, we pray, Your holy Church throughout all the world. Unite all who profess and call themselves Christians in the bond of a living faith as the body of Christ, and so replenish them and us with the grace of Your Holy Spirit, that we may bring forth abundantly the fruits of peace and good works, and may turn many to righteousness through the preaching of the Gospel. And grant that, having persevered in the way of godliness to the end, we may, with prophets, apostles, martyrs, confessors, and saints of all ages, come into full communion with You, and with one another, in Your eternal and glorious kingdom; through our Lord and Savior Jesus Christ. Amen.
 
-ALMIGHTY God, who hast heard the prayer of our fathers, and established our Nation in freedom according to the people's will; We implore Thy blessing on the Republic; that Thou wouldst grant us peaceful times and fruitful seasons; that Thou wouldst bless our homes, prosper our industries, and defend us from our enemies; that Thou wouldst govern and protect Thy servant the President of the United States, and all to whom authority is given; the Governor of the State, and all law-makers and judges: that Thou wouldst unite the hearts of the people to dwell together in concord: and that Thou wouldst enrich our land with liberty and order, godliness and power; for the good of the world and the glory of Thy Name; through Jesus Christ our Lord. Amen.
+ALMIGHTY God, who have heard the prayer of our fathers, and established our Nation in freedom according to the people's will; We implore Your blessing on the Republic; that You would grant us peaceful times and fruitful seasons; that You would bless our homes, prosper our industries, and defend us from our enemies; that You would govern and protect Your servant the President of the United States, and all to whom authority is given; the Governor of the State, and all lawmakers and judges: that You would unite the hearts of the people to dwell together in concord: and that You would enrich our land with liberty and order, godliness and power; for the good of the world and the glory of Your Name; through Jesus Christ our Lord. Amen.
 
-O GOD, Creator and Preserver of all mankind, we implore Thy mercy in behalf of all classes and conditions of men; that it may please Thee to visit them with Thy help, according to their manifold necessities. Have compassion upon all who are out of Christ, and draw them unto Him. Show Thy pity upon all prisoners and captives; upon all sick and dying persons; and upon all who are poor, desolate, or afflicted. Enable them to look unto Thee, O most merciful Father, and to find Thee a present Saviour in their time of trouble. And let it please Thee to deliver them, and raise them up in due time, giving them patience under all their sufferings, the rich comfort of Thy grace on earth, and eternal rest with Thee in heaven; through our Lord Jesus Christ. Amen.
+O GOD, Creator and Preserver of all mankind, we implore Your mercy in behalf of all classes and conditions of men; that it may please You to visit them with Your help, according to their manifold necessities. Have compassion upon all who are out of Christ, and draw them to Him. Show Your pity upon all prisoners and captives; upon all sick and dying persons; and upon all who are poor, desolate, or afflicted. Enable them to look to You, O most merciful Father, and to find You a present Savior in their time of trouble. And let it please You to deliver them, and raise them up in due time, giving them patience under all their sufferings, the rich comfort of Your grace on earth, and eternal rest with You in heaven; through our Lord Jesus Christ. Amen.
 
-O ALMIGHTY Lord, and everlasting God, vouchsafe, we beseech Thee, to direct, sanctify, and govern, both our hearts and bodies in the ways of Thy laws, and in the works of Thy commandments; that through Thy most mighty protection, both here and ever, we may be preserved in body and soul; through our Lord and Saviour Jesus Christ. Amen.
+O ALMIGHTY Lord, and everlasting God, be pleased, we pray, to direct, sanctify, and govern both our hearts and bodies in the ways of Your laws, and in the works of Your commandments; that through Your most mighty protection, both here and ever, we may be preserved in body and soul; through our Lord and Savior Jesus Christ. Amen.
 
-LIGHTEN our darkness, we beseech Thee, O Lord; and by Thy great mercy defend us from all perils and dangers of this night; for the love of Thy only Son, our Saviour, Jesus Christ. Amen.
+LIGHTEN our darkness, we pray, O Lord; and by Your great mercy defend us from all perils and dangers of this night; for the love of Your only Son, our Savior, Jesus Christ. Amen.
 
 ¶ *And the Prayer may close with the following Ascription:*
 
@@ -400,19 +400,19 @@ NOW unto Him that is able to keep you from falling, and to present you faultless
 
 ### The Offering
 
-¶ *Let the Minister, having made such Announcements as are needful and fitting, then say, Let us make our Offering to Almighty God for (naming the cause). If the choir sing a Canticle or Anthem it should be one proper for the occasion. When the gifts are brought to the Table, the Minister shall dedicate them to God with a brief prayer for His blessing; the church-officers who have gathered the gifts standing, and the congregation bowing down.*
+¶ *Let the Minister, having made such Announcements as are needful and fitting, then say, Let us make our Offering to Almighty God for (naming the cause). If the choir sings a Canticle or Anthem it should be one proper for the occasion. When the gifts are brought to the Table, the Minister shall dedicate them to God with a brief prayer for His blessing; the church-officers who have gathered the gifts standing, and the congregation bowing down.*
 
 ¶ *On special occasions the Offering may be made after the Sermon.*
 
 ### A Prayer of Dedication
 
-ALL gracious God, who of Thine infinite love didst give Thine only-begotten Son, Jesus Christ, to die for our sins and rise again for our justification, and hast made us partakers of the divine nature through the gift of the Holy Spirit; Accept the Offering which we now present unto Thee: and grant that our bodies, souls, and spirits may be unto Thee a living sacrifice, holy and well-pleasing in Thy sight; and that going forth in Thy strength, we may be able truly to serve Thee, and in all things to obey Thy will; through Jesus Christ our Lord. Amen.
+ALL gracious God, who of Your infinite love gave Your only-begotten Son, Jesus Christ, to die for our sins and rise again for our justification, and have made us partakers of the divine nature through the gift of the Holy Spirit; Accept the Offering which we now present to You: and grant that our bodies, souls, and spirits may be to You a living sacrifice, holy and well-pleasing in Your sight; and that going forth in Your strength, we may be able truly to serve You, and in all things to obey Your will; through Jesus Christ our Lord. Amen.
 
 ¶ *Then let the People stand up and sing*
 
 ### A Hymn
 
-¶ *Then the Minister, taking his text from the Word of God, and remembering that it is his office to instruct men in divine Truth, to hold forth Christ crucified as their Saviour, and to incite them to Christian faith and duty, shall preach*
+¶ *Then the Minister, taking his text from the Word of God, and remembering that it is his office to instruct men in divine Truth, to hold forth Christ crucified as their Savior, and to incite them to Christian faith and duty, shall preach*
 
 ### The Sermon
 
@@ -420,25 +420,25 @@ ALL gracious God, who of Thine infinite love didst give Thine only-begotten Son,
 
 ### A Hymn
 
-¶ *Then shall the Minister say,*
+¶ *Then the Minister shall say,*
 
 Let us pray.
 
-¶ *The People reverently bowing down, the Minister shall lead them in their devotions, using if he so desire one or more of the following Prayers, ending with the Lord's Prayer:*
+¶ *The People reverently bowing down, the Minister shall lead them in their devotions, using, if he so desires, one or more of the following Prayers, ending with the Lord's Prayer:*
 
 ### The Closing Prayer
 
-GRANT, we beseech Thee, Almighty God, that the words, which we have heard this day with our outward ears, may through Thy grace be so grafted inwardly in our hearts, that they may bring forth in us the fruit of good living, to the honour and praise of Thy Name; through Jesus Christ our Lord. Amen.
+GRANT, we pray, Almighty God, that the words which we have heard this day with our outward ears may through Your grace be so grafted inwardly in our hearts, that they may bring forth in us the fruit of good living, to the honor and praise of Your Name; through Jesus Christ our Lord. Amen.
 
-LET Thy Gospel, O Lord, come unto us not in word only but in power, and in much assurance, and in the Holy Ghost, that we may be guided into all truth, and strengthened unto all obedience and enduring of Thy will with joyfulness; that, abounding in the work of faith, and the labour of love, and the patience of hope, we may finally be made partakers of the inheritance of the saints in light; through Jesus Christ our Lord. Amen.
+LET Your Gospel, O Lord, come to us not in word only but in power, and in much assurance, and in the Holy Spirit, that we may be guided into all truth, and strengthened for all obedience and enduring of Your will with joyfulness; that, abounding in the work of faith, and the labor of love, and the patience of hope, we may finally be made partakers of the inheritance of the saints in light; through Jesus Christ our Lord. Amen.
 
-O LORD Jesus Christ, who hast died for us, that whether we wake or sleep, we should live together with Thee; Be Thou our strength every morning, and our rest when the shadows of the evening are stretched out, O Jesus Christ our Lord. Amen.
+O LORD Jesus Christ, who died for us, that whether we wake or sleep, we should live together with You; Be our strength every morning, and our rest when the shadows of the evening are stretched out, O Jesus Christ our Lord. Amen.
 
-O GOD, from whom all holy desires, all good counsels, and all just works do proceed; Give unto Thy servants that peace which the world cannot give; that both our hearts may be set to obey Thy commandments, and also that by Thee, we, being defended from the fear of our enemies, may pass our time in rest and quietness; through the merits of Jesus Christ our Saviour. Amen.
+O GOD, from whom all holy desires, all good counsels, and all just works proceed; Give to Your servants that peace which the world cannot give; that both our hearts may be set to obey Your commandments, and also that by You, we, being defended from the fear of our enemies, may pass our time in rest and quietness; through the merits of Jesus Christ our Savior. Amen.
 
-ETERNAL and ever-blessed God, who art the Author of our life, and the End of our pilgrimage; We beseech Thee so to guide us by Thy Word and Spirit, amid all perils and temptations, that we may not wander from Thy way, nor stumble upon the dark mountains; but may finish our course in safety, and come to our eternal rest in Thee; through the saving grace of our Lord Jesus Christ. Amen.
+ETERNAL and ever-blessed God, who are the Author of our life, and the End of our pilgrimage; We ask You so to guide us by Your Word and Spirit, amid all perils and temptations, that we may not wander from Your way, nor stumble upon the dark mountains; but may finish our course in safety, and come to our eternal rest in You; through the saving grace of our Lord Jesus Christ. Amen.
 
-O LORD God, the Light of the faithful, the Strength of those who labour, and the Repose of the blessed dead; We bless Thee for all Thy saints who have witnessed in their lives a good confession, and especially for those dear unto us who have fallen asleep in Jesus. Grant us grace, O Lord, so to follow their good example, that we may be one with them in spirit, and finally share in their eternal rest; through Jesus Christ our Lord. Amen.
+O LORD God, the Light of the faithful, the Strength of those who labor, and the Repose of the blessed dead; We bless You for all Your saints who have witnessed in their lives a good confession, and especially for those dear to us who have fallen asleep in Jesus. Grant us grace, O Lord, so to follow their good example, that we may be one with them in spirit, and finally share in their eternal rest; through Jesus Christ our Lord. Amen.
 
 ### The Lord's Prayer
 
@@ -456,7 +456,7 @@ THE grace of the Lord Jesus Christ, and the love of God, and the communion of th
 
 THE peace of God, which passeth all understanding, keep your hearts and minds in the knowledge and love of God, and of His Son Jesus Christ our Lord; and the blessing of God Almighty, the Father, the Son, and the Holy Ghost, be amongst you, and remain with you always. Amen.
 
-¶ *After the Benediction it is fitting that the Minister and People remain in silent prayer, beseeching God that none may leave His House without a blessing.*
+¶ *After the Benediction it is fitting that the Minister and People remain in silent prayer, asking God that none may leave His House without a blessing.*
 
 ¶ *Note that the last Hymn may be omitted, or its place in the Service changed, according to the wish and usage of any church.*
 
@@ -464,7 +464,7 @@ THE peace of God, which passeth all understanding, keep your hearts and minds in
 
 ¶ *This Service is intended for the use of any company of Christians, gathered together to worship God, on land or at sea, where there are no regular Church Ordinances, or where a Minister of the Gospel is not present.*
 
-¶ *If it be desired, the Service may begin with the Singing of a Hymn; after which the Leader, standing, may read one or more of the following Sentences taken from the Holy Scriptures.*
+¶ *If it is desired, the Service may begin with the Singing of a Hymn; after which the Leader, standing, may read one or more of the following Sentences taken from the Holy Scriptures.*
 
 ### Sentences
 
@@ -496,7 +496,7 @@ Return unto thy rest, O my soul; for the Lord hath dealt bountifully with thee.
 
 Abide with us: for it is toward evening, and the day is far spent.
 
-¶ *Then shall he say,*
+¶ *Then he shall say,*
 
 Let us pray.
 
@@ -504,9 +504,9 @@ Let us pray.
 
 ### Prayers
 
-ALMIGHTY God, unto whom all hearts are open, all desires known, and from whom no secrets are hid; Cleanse the thoughts of our hearts by the inspiration of Thy Holy Spirit, that we may perfectly love Thee, and worthily magnify Thy holy Name; through Christ our Lord. Amen.
+ALMIGHTY God, to whom all hearts are open, all desires known, and from whom no secrets are hidden; Cleanse the thoughts of our hearts by the inspiration of Your Holy Spirit, that we may perfectly love You, and worthily magnify Your holy Name; through Christ our Lord. Amen.
 
-MOST holy and merciful Father; We acknowledge and confess in Thy Presence: Our sinful nature prone to evil and slothful in good; And all our shortcomings and offenses against Thee. Thou alone knowest how often we have sinned: In wandering from Thy ways; In wasting Thy gifts; In forgetting Thy love. But Thou, O Lord, have pity upon us; Who are ashamed and sorry for all wherein we have displeased Thee. Teach us to hate our errors; Cleanse us from our secret faults; And forgive our sins; For the sake of Thy dear Son our Saviour. And O most holy and loving Father; Send Thy purifying grace into our hearts, we beseech Thee; That we may henceforth live in Thy light and walk in Thy ways; According to the commandments of Jesus Christ our Lord. Amen.
+MOST holy and merciful Father; We acknowledge and confess in Your Presence: Our sinful nature prone to evil and slothful in good; And all our shortcomings and offenses against You. You alone know how often we have sinned: In wandering from Your ways; In wasting Your gifts; In forgetting Your love. But You, O Lord, have pity upon us; Who are ashamed and sorry for all in which we have displeased You. Teach us to hate our errors; Cleanse us from our secret faults; And forgive our sins; For the sake of Your dear Son our Savior. And O most holy and loving Father; Send Your purifying grace into our hearts, we pray; That we may from now on live in Your light and walk in Your ways; According to the commandments of Jesus Christ our Lord. Amen.
 
 OUR Father which art in heaven, Hallowed be Thy Name. Thy kingdom come. Thy will be done in earth, As it is in heaven. Give us this day our daily bread. And forgive us our debts, As we forgive our debtors. And lead us not into temptation, But deliver us from evil: For Thine is the kingdom, and the power, and the glory, for ever. Amen.
 
@@ -536,7 +536,7 @@ I believe in the Holy Ghost; The Holy Catholic Church; The Communion of Saints; 
 
 ### A Hymn
 
-¶ *If it be convenient the company may then sing a Hymn; and after this, if it be desired, the Leader may read a Sermon, or a brief passage from some Christian book; or a word of exhortation and counsel may be spoken by the Leader or some other member of the company. If this is done, let another Hymn be sung before the closing Prayers. The Leader may choose from the following such as are appropriate; and, the company bowing down, he shall say,*
+¶ *If it is convenient the company may then sing a Hymn; and after this, if it is desired, the Leader may read a Sermon, or a brief passage from some Christian book; or a word of exhortation and counsel may be spoken by the Leader or some other member of the company. If this is done, let another Hymn be sung before the closing Prayers. The Leader may choose from the following such as are appropriate; and, the company bowing down, he shall say,*
 
 Let us pray.
 
@@ -544,41 +544,41 @@ Let us pray.
 
 #### Thanksgiving
 
-O GOD, by whose hand all living things were made, and by whose blessing they are nourished and sustained; We give Thee hearty thanks for all the bounties of Thy providence, wherewith Thou hast enriched our life; and we humbly pray that, enjoying Thy gifts in contentment, we may be enabled by Thy grace to use them to Thy praise. Especially we thank Thee for Thy great love in sending Thy Son to be the Saviour of the world and in calling us out of our sins into fellowship with Him: and we beseech Thee to grant us always Thy Holy Spirit, through whom we may grow continually in thankfulness toward Thee, as also into the likeness of Thy Son Jesus Christ our Lord. Amen.
+O GOD, by whose hand all living things were made, and by whose blessing they are nourished and sustained; We give You hearty thanks for all the bounties of Your providence, with which You have enriched our life; and we humbly pray that, enjoying Your gifts in contentment, we may be enabled by Your grace to use them to Your praise. Especially we thank You for Your great love in sending Your Son to be the Savior of the world and in calling us out of our sins into fellowship with Him: and we ask You to grant us always Your Holy Spirit, through whom we may grow continually in thankfulness toward You, as also into the likeness of Your Son Jesus Christ our Lord. Amen.
 
 #### Supplication
 
-O GOD, most holy, wise, and powerful Preserver and Governor of all Thy creatures and all their actions; Keep us this day in health of body and soundness of mind, in purity of heart and cheerfulness of spirit, in contentment with our lot and charity with our neighbour; and further all our lawful undertakings with Thy blessing. In our labour strengthen us: in our pleasure purify us: in our difficulties direct us: in our perils defend us: in our troubles comfort us: and supply all our needs, according to the riches of Thy grace in Christ Jesus our Lord. Amen.
+O GOD, most holy, wise, and powerful Preserver and Governor of all Your creatures and all their actions; Keep us this day in health of body and soundness of mind, in purity of heart and cheerfulness of spirit, in contentment with our lot and charity with our neighbor; and further all our lawful undertakings with Your blessing. In our labor strengthen us: in our pleasure purify us: in our difficulties direct us: in our perils defend us: in our troubles comfort us: and supply all our needs, according to the riches of Your grace in Christ Jesus our Lord. Amen.
 
 #### A Traveller's Prayer
 
-LORD God omnipotent, who reignest in the heavens and on the earth; We implore Thy guidance and protection for all our journeyings. Against all perils be Thou our strong defense, and in far regions be Thou our faithful friend; keep us in health and heart; prosper the ends of our adventure, and make the way of our going and of our returning both safe and happy; and so direct the steps of all Thy pilgrims through this world, that we shall finally arrive in the better country, even the heavenly, with Jesus Christ our Lord. Amen.
+LORD God omnipotent, who reign in the heavens and on the earth; We implore Your guidance and protection for all our journeyings. Against all perils be our strong defense, and in far regions be our faithful friend; keep us in health and heart; prosper the ends of our adventure, and make the way of our going and of our returning both safe and happy; and so direct the steps of all Your pilgrims through this world, that we shall finally arrive in the better country, even the heavenly, with Jesus Christ our Lord. Amen.
 
 #### A Prayer at Sea
 
-O ETERNAL Lord God, who alone spreadest out the heavens, and rulest the raging of the sea; We commend ourselves to Thine almighty protection on the great deep. Guard us, we beseech Thee, from the dangers of the sea, from sickness, from the violence of enemies, from every evil; and conduct us in safety to our desired haven, with a grateful sense of Thy mercies; through Jesus Christ our Lord. Amen.
+O ETERNAL Lord God, who alone spread out the heavens, and rule the raging of the sea; We commend ourselves to Your almighty protection on the great deep. Guard us, we pray, from the dangers of the sea, from sickness, from the violence of enemies, from every evil; and conduct us in safety to our desired haven, with a grateful sense of Your mercies; through Jesus Christ our Lord. Amen.
 
 #### A Prayer for Friends and Kindred
 
-O LORD, our heavenly Father, bless and keep, we pray Thee, our kindred, friends, and benefactors, and graciously watch between them and us, while we are absent one from another, that in due time we may meet again to praise Thee, and hereafter dwell together in heavenly mansions; through Christ our Lord. Amen.
+O LORD, our heavenly Father, bless and keep, we pray You, our kindred, friends, and benefactors, and graciously watch between them and us, while we are absent one from another, that in due time we may meet again to praise You, and hereafter dwell together in heavenly mansions; through Christ our Lord. Amen.
 
 #### A General Intercession
 
-O GOD, the Creator and Preserver of all mankind, we humbly beseech Thee for all sorts and conditions of men; that Thou wouldest be pleased to make Thy ways known unto them, Thy saving health unto all nations. More especially, we pray for Thy holy Church universal; that it may be so guided and governed by Thy good Spirit, that all who profess and call themselves Christians may be led into the way of truth, and hold the faith in unity of spirit, in the bond of peace, and in righteousness of life. Finally, we commend to Thy fatherly goodness all those who are any ways afflicted, or distressed, in mind, body, or estate; that it may please Thee to comfort and relieve them, according to their several necessities; giving them patience under their sufferings, and a happy issue out of all their afflictions. And this we beg for Jesus Christ's sake. Amen.
+O GOD, the Creator and Preserver of all mankind, we humbly pray to You for all sorts and conditions of men; that You would be pleased to make Your ways known to them, Your saving health to all nations. More especially, we pray for Your holy Church universal; that it may be so guided and governed by Your good Spirit, that all who profess and call themselves Christians may be led into the way of truth, and hold the faith in unity of spirit, in the bond of peace, and in righteousness of life. Finally, we commend to Your fatherly goodness all those who are in any way afflicted or distressed, in mind, body, or estate; that it may please You to comfort and relieve them, according to their several necessities; giving them patience under their sufferings, and a happy issue out of all their afflictions. And this we ask for Jesus Christ's sake. Amen.
 
 #### A General Prayer in the Morning
 
-ALMIGHTY God, our Father and Preserver; We give Thee thanks that of Thy goodness Thou hast watched over us the past night, and brought us to a new day: and we beseech Thee to strengthen and guard us by Thy Spirit, that we may spend it wholly in Thy service and to Thy glory, looking for all prosperity to Thy blessing, and seeking only those things which are well-pleasing in Thy sight. Enable us, O Lord, while we labour for the life that now is, ever to have regard unto that heavenly life which Thou hast promised Thy children. Defend us in soul and body from all harm. And seeing it is a small thing to have begun well, except we also persevere, take us, O Lord, into Thy good keeping this day and all our days: continue and increase Thy grace within us, until we shall be perfectly united in the glory of Thy Son. Show Thy loving-kindness unto all men and women and little children, according to the need of every living soul, especially unto those whom we love, and those who are in any kind of trouble or distress, whom we now remember silently before Thee: [here let there be a moment of prayer in silence;] Protect our country and prosper Thy Church: Bless all who do good in the world, and restrain and convert all who do evil. And finally, be pleased to cast out of Thy remembrance all our past offenses, forgiving them in Thy boundless mercy and purifying our hearts that we may lead a better life; through Jesus Christ our Lord. Amen.
+ALMIGHTY God, our Father and Preserver; We give You thanks that of Your goodness You have watched over us the past night, and brought us to a new day: and we ask You to strengthen and guard us by Your Spirit, that we may spend it wholly in Your service and to Your glory, looking for all prosperity to Your blessing, and seeking only those things which are well-pleasing in Your sight. Enable us, O Lord, while we labor for the life that now is, ever to have regard to that heavenly life which You have promised Your children. Defend us in soul and body from all harm. And seeing it is a small thing to have begun well, unless we also persevere, take us, O Lord, into Your good keeping this day and all our days: continue and increase Your grace within us, until we shall be perfectly united in the glory of Your Son. Show Your loving-kindness to all men and women and little children, according to the need of every living soul, especially to those whom we love, and those who are in any kind of trouble or distress, whom we now remember silently before You: [here let there be a moment of prayer in silence;] Protect our country and prosper Your Church: Bless all who do good in the world, and restrain and convert all who do evil. And finally, be pleased to cast out of Your remembrance all our past offenses, forgiving them in Your boundless mercy and purifying our hearts that we may lead a better life; through Jesus Christ our Lord. Amen.
 
 #### A General Prayer in the Evening
 
-O GOD most merciful, Light eternal in the darkness shining, by whom the night of sin and the blindness of our hearts are driven away: Since Thou hast appointed the day for labour and the night for rest; grant unto us, we beseech Thee, that our bodies may repose in peace and quietness, that afterward they may be able to endure the toil which Thou hast laid upon us in Thy service: Temper our sleep that it be not disorderly, and keep us spotless both in body and in soul, that our very rest may be to Thy glory, renewing the strength of our hearts and our joy in Thee: Enlighten the eyes of our understanding that we may not sleep in death, but obtain deliverance, through faith and hope, from all fear of this misery: Defend us against all assaults of our enemies, and take us into Thy holy protection. And although we have not passed this day without greatly sinning against Thee, we beseech Thee to hide our sins with Thy mercy, as Thou coverest all things on earth with the darkness of the night, that they may be blotted out from Thy remembrance, and we may abide in Thy Presence and Thy favour, both now and for evermore. Relieve and comfort, with Thy fatherly goodness, all who are afflicted or distressed in mind, body, or estate: Protect and prosper, with Thine almighty power, our country and our rulers, the whole Church of Christ on earth, our home, and all that we hold dear and sacred: Be pleased to guard and help those whom we silently remember before Thee: [here let there be a moment of prayer in silence;] Bless us and keep us, watch over us and save us, O God in whom we trust; through Jesus Christ our Lord. Amen.
+O GOD most merciful, Light eternal in the darkness shining, by whom the night of sin and the blindness of our hearts are driven away: Since You have appointed the day for labor and the night for rest; grant to us, we pray, that our bodies may rest in peace and quietness, that afterward they may be able to endure the toil which You have laid upon us in Your service: Temper our sleep that it may not be disorderly, and keep us spotless both in body and in soul, that our very rest may be to Your glory, renewing the strength of our hearts and our joy in You: Enlighten the eyes of our understanding that we may not sleep in death, but obtain deliverance, through faith and hope, from all fear of this misery: Defend us against all assaults of our enemies, and take us into Your holy protection. And although we have not passed this day without greatly sinning against You, we ask You to hide our sins with Your mercy, as You cover all things on earth with the darkness of the night, that they may be blotted out from Your remembrance, and we may abide in Your Presence and Your favor, both now and for evermore. Relieve and comfort, with Your fatherly goodness, all who are afflicted or distressed in mind, body, or estate: Protect and prosper, with Your almighty power, our country and our rulers, the whole Church of Christ on earth, our home, and all that we hold dear and sacred: Be pleased to guard and help those whom we silently remember before You: [here let there be a moment of prayer in silence;] Bless us and keep us, watch over us and save us, O God in whom we trust; through Jesus Christ our Lord. Amen.
 
-LIGHTEN our darkness, we beseech Thee, O Lord; and by Thy great mercy defend us from all perils and dangers of this night; for the love of Thy only Son, our Saviour, Jesus Christ. Amen.
+LIGHTEN our darkness, we pray, O Lord; and by Your great mercy defend us from all perils and dangers of this night; for the love of Your only Son, our Savior, Jesus Christ. Amen.
 
 #### A Prayer of St. Chrysostom
 
-ALMIGHTY God, who hast given us grace at this time with one accord to make our common supplications unto Thee; and dost promise that when two or three are gathered together in Thy Name Thou wilt grant their requests: Fulfil now, O Lord, the desires and petitions of Thy servants, as may be most expedient for them; granting us in this world knowledge of Thy truth, and in the world to come life everlasting. Amen.
+ALMIGHTY God, who have given us grace at this time with one accord to make our common supplications to You, and who promise that when two or three are gathered together in Your Name You will grant their requests: Fulfill now, O Lord, the desires and petitions of Your servants, as may be most expedient for them; granting us in this world knowledge of Your truth, and in the world to come life everlasting. Amen.
 
 ¶ *All the company still bowing down, the Leader may close the Service with this*
 
@@ -608,7 +608,7 @@ Let us pray.
 
 ### The Invocation
 
-ALMIGHTY God, unto whom all hearts are open, all desires known, and from whom no secrets are hid; Cleanse the thoughts of our hearts by the inspiration of Thy Holy Spirit, that we may perfectly love Thee, and worthily magnify Thy holy Name; through Christ our Lord. Amen.
+ALMIGHTY God, to whom all hearts are open, all desires known, and from whom no secrets are hidden; Cleanse the thoughts of our hearts by the inspiration of Your Holy Spirit, that we may perfectly love You, and worthily magnify Your holy Name; through Christ our Lord. Amen.
 
 ¶ *Then the Minister shall read The Ten Commandments, and the People, still bowing down, shall, after every Commandment, ask God's mercy for their transgressions in time past, and grace to keep the Law in time to come.*
 
@@ -660,11 +660,11 @@ Thou shalt not covet thy neighbour's house, thou shalt not covet thy neighbour's
 
 Hear also what our Lord Jesus Christ saith: Thou shalt love the Lord thy God with all thy heart, and with all thy soul, and with all thy mind. This is the first and great commandment. And the second is like unto it; Thou shalt love thy neighbour as thyself. On these two commandments hang all the Law and the Prophets.
 
-¶ *After a short pause let the Minister continue in Prayer, using, if he will, the following, or other fitting words.*
+¶ *After a short pause let the Minister continue in Prayer, using, if he wishes, the following, or other fitting words.*
 
-WE confess to Thee, Almighty God, Father, Son, and Holy Ghost, that we have grievously sinned in thought, word, and deed. Make us truly contrite. Fill us with holy fear, and give us grace to amend our lives according to Thy Word, for the glory of Thy holy Name; through Jesus Christ our Lord. Amen.
+WE confess to You, Almighty God, Father, Son, and Holy Spirit, that we have grievously sinned in thought, word, and deed. Make us truly contrite. Fill us with holy fear, and give us grace to amend our lives according to Your Word, for the glory of Your holy Name; through Jesus Christ our Lord. Amen.
 
-ALMIGHTY God, our heavenly Father, who of His great mercy hath promised forgiveness of sins to all them that with hearty repentance and true faith turn to Him; Have mercy upon you; pardon and deliver you from all your sins; confirm and strengthen you in all goodness; and bring you to everlasting life; through Jesus Christ our Lord. Amen.
+ALMIGHTY God, our heavenly Father, who of His great mercy has promised forgiveness of sins to all those who with hearty repentance and true faith turn to Him; Have mercy upon you; pardon and deliver you from all your sins; confirm and strengthen you in all goodness; and bring you to everlasting life; through Jesus Christ our Lord. Amen.
 
 NOW unto Him that is able to do exceeding abundantly above all that we ask or think, according to the power that worketh in us; unto Him be glory and dominion in the Church by Christ Jesus, throughout all ages, world without end. Amen.
 
@@ -682,7 +682,7 @@ NOW unto Him that is able to do exceeding abundantly above all that we ask or th
 
 *Answer.* Let Thy mercy, O Lord, be upon us, according as we hope in Thee.
 
-¶ *Then the Minister shall say.*
+¶ *Then the Minister shall say,*
 
 Let us pray.
 
@@ -690,7 +690,7 @@ Let us pray.
 
 ### The Invocation
 
-MERCIFUL God, we beseech Thee to cast Thy bright beams of light into our hearts, that we may discern the spiritual laws of Thy kingdom, and graciously incline us to a true obedience that we may not only hear, but also receive, these heavenly blessings of our Lord Jesus Christ. Amen.
+MERCIFUL God, we ask You to cast Your bright beams of light into our hearts, that we may discern the spiritual laws of Your kingdom, and graciously incline us to a true obedience, that we may not only hear, but also receive, these heavenly blessings of our Lord Jesus Christ. Amen.
 
 ¶ *Then the Minister shall read The Beatitudes of the Lord Jesus; and the People, still bowing down, shall, after every Beatitude, humbly ask God that it may be fulfilled in their hearts.*
 
@@ -726,9 +726,9 @@ Blessed are they which are persecuted for righteousness' sake: for theirs is the
 
 *Grant unto us Thy Holy Spirit, O God, and enable us to obtain all these blessings, through Jesus Christ our Lord.*
 
-¶ *After a short pause, let the Minister continue in Prayer, using, if he will, the following, or other fitting words.*
+¶ *After a short pause, let the Minister continue in Prayer, using, if he wishes, the following, or other fitting words.*
 
-GLORY be to Thee, O Christ, who hast opened the kingdom of heaven unto the poor in spirit, and given power to them that believe in Thee to become the sons of God. Deliver us, O Lord, in Thy great mercy, from all the secret sins that hinder us from true blessedness. Strengthen us to keep Thy counsels of perfection, and to walk in the way of Thy commandments. And grant unto us that peace which the world can neither give nor take away, that at the last we may come unto Thee in glory, O Thou most blessed Lord Jesus, our only Saviour. Amen.
+GLORY be to You, O Christ, who have opened the kingdom of heaven to the poor in spirit, and given power to those who believe in You to become the sons of God. Deliver us, O Lord, in Your great mercy, from all the secret sins that hinder us from true blessedness. Strengthen us to keep Your counsels of perfection, and to walk in the way of Your commandments. And grant to us that peace which the world can neither give nor take away, that at the last we may come to You in glory, O most blessed Lord Jesus, our only Savior. Amen.
 
 NOW unto Him that is able to do exceeding abundantly above all that we ask or think, according to the power that worketh in us; unto Him be glory and dominion in the Church by Christ Jesus, throughout all ages, world without end. Amen.
 
@@ -740,15 +740,15 @@ NOW unto Him that is able to do exceeding abundantly above all that we ask or th
 
 ¶ *When the time is come for administration, the Minister shall say,*
 
-DEARLY beloved, as we draw near to the Lord's Supper to celebrate the Holy Communion of the Body and Blood of Christ, we are gratefully to remember that our Lord instituted this Sacrament to be observed in His Church unto the end of the world: for the perpetual remembrance of the sacrifice of Himself in His death, the sealing all benefits thereof unto true believers, their spiritual nourishment and growth in Him, their further engagement in and to all duties which they owe unto Him; and to be a bond and pledge of their union with Him and with each other as members of His mystical body.
+DEARLY beloved, as we draw near to the Lord's Supper to celebrate the Holy Communion of the Body and Blood of Christ, we are gratefully to remember that our Lord instituted this Sacrament to be observed in His Church to the end of the world: for the perpetual remembrance of the sacrifice of Himself in His death, the sealing of all its benefits to true believers, their spiritual nourishment and growth in Him, their further engagement in and to all duties which they owe to Him; and to be a bond and pledge of their union with Him and with each other as members of His mystical body.
 
-Let us consider earnestly our great need of having our comfort and strength so renewed in this our earthly pilgrimage and warfare; and especially how necessary it is that we come unto the Lord's Table with knowledge, faith, repentance, love, and with hearts hungering and thirsting after Christ. Not unto those who live willingly in transgression and offenses, holding fellowship with hatred, malice, or impurity; nor unto those who cherish pride and self-righteousness in their hearts, trusting secretly in their own works and merits, are these benefits of Christ offered. But all that are truly sorry for their sins and would be delivered from the burden of them, all that humbly put their trust in Christ, and desire His grace that they may lead a holy life, are invited and encouraged in His Name to come to this Sacrament. Let us therefore so come that we may find refreshing and rest unto our souls.
+Let us consider earnestly our great need of having our comfort and strength so renewed in this our earthly pilgrimage and warfare; and especially how necessary it is that we come to the Lord's Table with knowledge, faith, repentance, love, and with hearts hungering and thirsting after Christ. Not to those who live willingly in transgression and offenses, holding fellowship with hatred, malice, or impurity; nor to those who cherish pride and self-righteousness in their hearts, trusting secretly in their own works and merits, are these benefits of Christ offered. But all that are truly sorry for their sins and would be delivered from the burden of them, all that humbly put their trust in Christ, and desire His grace that they may lead a holy life, are invited and encouraged in His Name to come to this Sacrament. Let us therefore so come that we may find refreshing and rest to our souls.
 
 ¶ *Then let the People stand up and sing*
 
 ### A Hymn
 
-¶ *If it be more convenient in any church, this Hymn may be omitted.*
+¶ *If it is more convenient in any church, this Hymn may be omitted.*
 
 ¶ *The Table, on which the elements are placed, being decently covered, the bread in convenient dishes, and the wine in cups, and the Communicants orderly and gravely sitting around the Table, (or in their seats before it) in the presence of the Minister, he shall say,*
 
@@ -766,7 +766,7 @@ Let us pray.
 
 ¶ *If so desired, these Prayers and Thanksgivings may be offered in the form following; the People reverently bowing down:*
 
-O GOD, who by the blood of Thy dear Son hast consecrated for us a new and a living way into the holiest of all; Cleanse our minds, we beseech Thee, by the inspiration of Thy Holy Spirit, that, drawing near unto Thee with a pure heart and undefiled conscience, we may receive these Thy gifts without sin, and worthily magnify Thy holy Name; through Jesus Christ our Lord. Amen.
+O GOD, who by the blood of Your dear Son have consecrated for us a new and a living way into the holiest of all; Cleanse our minds, we pray, by the inspiration of Your Holy Spirit, that, drawing near to You with a pure heart and undefiled conscience, we may receive these Your gifts without sin, and worthily magnify Your holy Name; through Jesus Christ our Lord. Amen.
 
 ¶ *Then the People, still bowing down, shall make these responses:*
 
@@ -784,7 +784,7 @@ O GOD, who by the blood of Thy dear Son hast consecrated for us a new and a livi
 
 ¶ *Then the Minister, proceeding, shall say,*
 
-IT is very meet, right, and our bounden duty, that we should, at all times and in all places, give thanks unto Thee, O Lord, Holy Father, Almighty and Eternal God, for all Thy bounties known and unknown; but chiefly are we bound to praise Thee that Thou hast ransomed us from eternal death, and given us the joyful hope of everlasting life through Jesus Christ Thy Son, whom Thou didst send into the world to suffer death upon the cross for our redemption. Thee, God the Father Everlasting: Thee, Only Begotten Son: Thee, Holy Spirit, the Comforter: Holy, Blessed and Glorious Trinity: we confess and praise with heart and mouth; saying, with angels and archangels, and all the company of Heaven,
+IT is very fitting, right, and our bounden duty, that we should, at all times and in all places, give thanks to You, O Lord, Holy Father, Almighty and Eternal God, for all Your bounties known and unknown; but chiefly are we bound to praise You that You have ransomed us from eternal death, and given us the joyful hope of everlasting life through Jesus Christ Your Son, whom You sent into the world to suffer death upon the cross for our redemption. You, God the Father Everlasting: You, Only Begotten Son: You, Holy Spirit, the Comforter: Holy, Blessed and Glorious Trinity: we confess and praise with heart and mouth; saying, with angels and archangels, and all the company of Heaven,
 
 ¶ *Here let the People, still bowing down, join aloud, singing or saying,*
 
@@ -792,21 +792,21 @@ HOLY, HOLY, HOLY, Lord God of Hosts; Heaven and earth are full of the majesty of
 
 ¶ *Then the Minister shall proceed, saying,*
 
-ALMIGHTY God, the Father of our Lord Jesus Christ, whose once offering up of Himself, by Himself, upon the cross, once for all, we commemorate before Thee; We beseech Thee to accept this our spiritual oblation of all possible praise for the same. And here we offer and present, O Lord, ourselves, our souls and bodies, to be a reasonable, holy, and living sacrifice, acceptable unto Thee through Jesus Christ Thy Son:
+ALMIGHTY God, the Father of our Lord Jesus Christ, whose once offering up of Himself, by Himself, upon the cross, once for all, we commemorate before You; We ask You to accept this our spiritual offering of all possible praise for the same. And here we offer and present, O Lord, ourselves, our souls and bodies, to be a reasonable, holy, and living sacrifice, acceptable to You through Jesus Christ Your Son:
 
-And we most humbly beseech Thee, Father of all mercies and God of all comfort, to vouchsafe Thy gracious presence, and the effectual working of Thy Spirit in us, and so to sanctify these elements both of Bread and Wine, and to bless Thine own Ordinance; that we may receive by faith Christ crucified for us, and so feed upon Him, that He may be one with us and we with Him; that He may live in us, and we in Him who hath loved us, and given Himself for us:
+And we most humbly ask You, Father of all mercies and God of all comfort, to grant Your gracious presence, and the effectual working of Your Spirit in us, and so to sanctify these elements both of Bread and Wine, and to bless Your own Ordinance; that we may receive by faith Christ crucified for us, and so feed upon Him, that He may be one with us and we with Him; that He may live in us, and we in Him who has loved us, and given Himself for us:
 
-Even Jesus Christ our Lord; to whom, with Thee and the Holy Ghost, be praise and power, might, majesty, and dominion, both now and evermore. Amen.
+Even Jesus Christ our Lord; to whom, with You and the Holy Spirit, be praise and power, might, majesty, and dominion, both now and evermore. Amen.
 
 ¶ *The Bread and Wine being thus set apart by Prayer and Thanksgiving, the Minister is to take the Bread, and break it, in view of the People, saying,*
 
-OUR Lord Jesus Christ, on the same night in which He was betrayed, having taken Bread, and blessed and broken it, gave it to His disciples; as I, ministering in His Name, give this Bread unto you; saying, Take, eat: this is My Body, which is broken for you; this do in remembrance of Me.
+OUR Lord Jesus Christ, on the same night in which He was betrayed, having taken Bread, and blessed and broken it, gave it to His disciples; as I, ministering in His Name, give this Bread to you; saying, Take, eat: this is My Body, which is broken for you; this do in remembrance of Me.
 
 ¶ *Then the Minister, who is also himself to communicate, is to give the Bread to the Elders to be distributed.*
 
 ¶ *After having given the Bread, he shall take the Cup and say,*
 
-AFTER the same manner our Saviour also took the Cup; and having given thanks, as hath been done in His Name, He gave it to His disciples, saying, This Cup is the New Testament in My Blood, which is shed for many for the remission of sins: drink ye all of it.
+AFTER the same manner our Savior also took the Cup; and having given thanks, as has been done in His Name, He gave it to His disciples, saying, This Cup is the New Testament in My Blood, which is shed for many for the remission of sins: drink ye all of it.
 
 ¶ *Then the Minister, who is also to partake of the Cup, shall give it to the Elders to be administered.*
 
@@ -814,11 +814,11 @@ AFTER the same manner our Saviour also took the Cup; and having given thanks, as
 
 Let us pray.
 
-ALMIGHTY and ever-living God, we most heartily thank Thee for Thy rich mercy and invaluable goodness, vouchsafed to us in this sacred Communion, wherein we have assurance that we are very members of the mystical body of Thy Son, and heirs through hope of Thine everlasting kingdom. And, as we have been made partakers of Christ, so enable us to hold fast that which we have received, that no man may take our crown. Help us, we beseech Thee, to bear about with us continually the dying of the Lord Jesus, that the life also of Jesus may be made manifest in our mortal body; and grant that we may remain alway in the holy fellowship of all faithful people, with whom in the unity of the Spirit, we now make our intercessions unto Thee:
+ALMIGHTY and ever-living God, we most heartily thank You for Your rich mercy and invaluable goodness, granted to us in this sacred Communion, in which we have assurance that we are very members of the mystical body of Your Son, and heirs through hope of Your everlasting kingdom. And, as we have been made partakers of Christ, so enable us to hold fast that which we have received, that no man may take our crown. Help us, we pray, to bear about with us continually the dying of the Lord Jesus, that the life also of Jesus may be made manifest in our mortal body; and grant that we may remain always in the holy fellowship of all faithful people, with whom in the unity of the Spirit, we now make our intercessions to You:
 
-O Lord, save Thy people and bless Thine inheritance: feed them also, and lift them up for ever. Remember, O Lord, Thy congregation, which Thou hast purchased of old: pour out Thy Spirit as floods upon the dry ground, and refresh Thy waiting heritage. Let Thy priests be clothed with righteousness, and let Thy saints shout for joy. Show Thy mercy also unto them that are afar off, and gather all the lost sheep into Thy fold; for the sake of Jesus Christ our Lord. Amen.
+O Lord, save Your people and bless Your inheritance: feed them also, and lift them up for ever. Remember, O Lord, Your congregation, which You have purchased of old: pour out Your Spirit as floods upon the dry ground, and refresh Your waiting heritage. Let Your priests be clothed with righteousness, and let Your saints shout for joy. Show Your mercy also to those who are afar off, and gather all the lost sheep into Your fold; for the sake of Jesus Christ our Lord. Amen.
 
-MOST merciful God, we bless Thy holy Name for all Thy servants who have kept the faith, and, having accomplished their warfare, are at rest with Thee. We pray Thee to enable us so to follow their good example, that we with them may finally be partakers of Thy heavenly kingdom, and, at the glorious appearing of our Saviour Jesus Christ, may behold Him with unveiled face, being changed into His likeness; when He shall present us, with all His Church, faultless before the presence of His glory with exceeding joy. Hear us, O heavenly Father, for His sake: to whom, with Thee and the Holy Ghost, be glory for ever and ever. Amen.
+MOST merciful God, we bless Your holy Name for all Your servants who have kept the faith, and, having accomplished their warfare, are at rest with You. We pray You to enable us so to follow their good example, that we with them may finally be partakers of Your heavenly kingdom, and, at the glorious appearing of our Savior Jesus Christ, may behold Him with unveiled face, being changed into His likeness; when He shall present us, with all His Church, faultless before the presence of His glory with exceeding joy. Hear us, O heavenly Father, for His sake: to whom, with You and the Holy Spirit, be glory for ever and ever. Amen.
 
 ¶ *Then the People shall rise and sing*
 
@@ -830,7 +830,7 @@ MOST merciful God, we bless Thy holy Name for all Thy servants who have kept the
 
 NOW the God of peace, that brought again from the dead our Lord Jesus, that great Shepherd of the sheep, through the blood of the everlasting covenant, make you perfect in every good work to do His will, working in you that which is well-pleasing in His sight, through Jesus Christ; to whom be glory for ever and ever. Amen.
 
-¶ *After the Benediction it is fitting that the Communicants remain in silent prayer, beseeching God that none may leave His Table without a blessing.*
+¶ *After the Benediction it is fitting that the Communicants remain in silent prayer, asking God that none may leave His Table without a blessing.*
 
 ## The Order for the Administration of Baptism to Infants
 
@@ -838,15 +838,15 @@ NOW the God of peace, that brought again from the dead our Lord Jesus, that grea
 
 ¶ *Although Baptism is usually to be administered in the church, in the presence of the congregation; yet there may be cases when it will be expedient to administer this Sacrament in private houses; of which the Minister is to be the judge.—Directory for Worship, Chap. viii, § 5.*
 
-¶ *After previous notice is given to the Minister, the Child to be baptized is to be presented to him by one or both the parents, whom the Minister shall address in this wise:*
+¶ *After previous notice is given to the Minister, the Child to be baptized is to be presented to him by one or both the parents, whom the Minister shall address in this way:*
 
-DEARLY beloved, Almighty God, who has called us into His Church, has promised to be our God, and also the God and Father of our children; which covenant He renews in this Sacrament of Baptism, given to us and to our children, as a sign and seal of the washing away of our sins and our ingrafting into Christ. St. Paul assures us that the children of the faithful are to be numbered among the holy people of God. Our Saviour also, in the Gospel, calls the children unto Him, and blesses them, saying: Suffer the little children to come unto Me, and forbid them not: for of such is the Kingdom of God.
+DEARLY beloved, Almighty God, who has called us into His Church, has promised to be our God, and also the God and Father of our children; which covenant He renews in this Sacrament of Baptism, given to us and to our children, as a sign and seal of the washing away of our sins and our ingrafting into Christ. St. Paul assures us that the children of the faithful are to be numbered among the holy people of God. Our Savior also, in the Gospel, calls the children to Him, and blesses them, saying: Suffer the little children to come unto Me, and forbid them not: for of such is the Kingdom of God.
 
-Forasmuch as you desire and claim these blessings for your Child, you will now engage, on your part, to perform those things which God requires of you, that the good will and pleasure of your Heavenly Father may not be hidden from your Child.
+Since you desire and claim these blessings for your Child, you will now engage, on your part, to perform those things which God requires of you, that the good will and pleasure of your Heavenly Father may not be hidden from your Child.
 
 ¶ *Here the Minister shall address the following Questions to the Parents; and the Parents, each of them, shall make answer:*
 
-*Question.* Do you accept, for yourself and for your Child, the covenant of God, and therein consecrate your Child to Him?
+*Question.* Do you accept, for yourself and for your Child, the covenant of God, and in it consecrate your Child to Him?
 
 *Answer.* I do.
 
@@ -856,9 +856,9 @@ Forasmuch as you desire and claim these blessings for your Child, you will now e
 
 ¶ *Then the Minister shall say,*
 
-GRANT, O Lord, to these Thy servants grace to perform the things which they have promised before Thee:
+GRANT, O Lord, to these Your servants grace to perform the things which they have promised before You:
 
-And sanctify with Thy Spirit this Child now to be baptized according to Thy Word; through Jesus Christ our Lord. Amen.
+And sanctify with Your Spirit this Child now to be baptized according to Your Word; through Jesus Christ our Lord. Amen.
 
 ¶ *Then, all present reverently standing, the Minister shall say to the Parents,*
 
@@ -866,13 +866,13 @@ What is the name of this Child?
 
 ¶ *Then the Minister (taking the Child in his arms, or leaving it in the arms of the Parent), pronouncing the name of the Child, shall pour or sprinkle water upon it, saying,*
 
-N——, I baptize thee in the Name of the Father, and of the Son, and of the Holy Ghost. Amen.
+N——, I baptize you in the Name of the Father, and of the Son, and of the Holy Spirit. Amen.
 
 ¶ *Then the Minister shall say,*
 
 Let us pray.
 
-MOST holy and merciful Father, we give Thee hearty thanks that Thou hast numbered us amongst Thy people, and dost also call our children unto Thee, marking them with this Sacrament, as a singular token and badge of Thy love. Wherefore, we beseech Thee to confirm Thy favour more and more toward us, and to take into Thy tuition and defense this Child, whom we offer and present unto Thee with common supplications. Grant that he may know Thee his merciful Father, through Thy Holy Spirit working in his heart, and that he may not be ashamed to confess the faith of Christ crucified; but may continue His faithful soldier and servant, and so prevail against evil that in the end he may obtain the victory, and be exalted into the liberty of Thy kingdom; through Jesus Christ our Lord. Amen.
+MOST holy and merciful Father, we give You hearty thanks that You have numbered us among Your people, and also call our children to You, marking them with this Sacrament, as a singular token and badge of Your love. Therefore we ask You to confirm Your favor more and more toward us, and to take into Your care and defense this Child, whom we offer and present to You with common supplications. Grant that he may know You as his merciful Father, through Your Holy Spirit working in his heart, and that he may not be ashamed to confess the faith of Christ crucified; but may continue His faithful soldier and servant, and so prevail against evil that in the end he may obtain the victory, and be exalted into the liberty of Your kingdom; through Jesus Christ our Lord. Amen.
 
 ¶ *Then the Minister and People may say together the Lord's Prayer, if the same is not said in the Service immediately preceding or following.*
 
@@ -886,9 +886,9 @@ THE grace of the Lord Jesus Christ, and the love of God, and the communion of th
 
 ¶ *Infants descending from parents, either both or but one of them professing faith in Christ and obedience to Him, are within the covenant of promise, and are to be baptized.—Larger Catechism, 166.*
 
-¶ *The efficacy of Baptism is not tied to that moment of time wherein it is administered; yet, notwithstanding, by the right use of this Sacrament the grace promised is not only offered, but really exhibited and conferred by the Holy Ghost, to such (whether of age or infants) as that grace belongeth unto, according to the counsel of God's own will, in His appointed time. Grace and salvation are, however, not so inseparably annexed unto Baptism as that none can be regenerated or saved without it, or that all that are baptized are undoubtedly regenerated.—Confession of Faith, Chap. xxviii, §§ 5, 6.*
+¶ *The efficacy of Baptism is not tied to that moment of time in which it is administered; yet, notwithstanding, by the right use of this Sacrament the grace promised is not only offered, but really exhibited and conferred by the Holy Spirit, to such (whether of age or infants) as that grace belongs to, according to the counsel of God's own will, in His appointed time. Grace and salvation are, however, not so inseparably joined to Baptism as that none can be regenerated or saved without it, or that all who are baptized are undoubtedly regenerated.—Confession of Faith, Chap. xxviii, §§ 5, 6.*
 
-¶ *When, by death of the parents or otherwise, children are removed from their custody, the guardian or other person who has undertaken to rear them may present them for Baptism, provided he possess the qualifications requisite for having his own children baptized, and is willing to assume the obligations made by parents in the foregoing service.—Minutes of the Synod of 1786.*
+¶ *When, by death of the parents or otherwise, children are removed from their custody, the guardian or other person who has undertaken to rear them may present them for Baptism, provided he possesses the qualifications requisite for having his own children baptized, and is willing to assume the obligations made by parents in the foregoing service.—Minutes of the Synod of 1786.*
 
 ## The Order for the Administration of Baptism to Adults and Their Reception to the Lord's Supper
 
@@ -896,17 +896,17 @@ THE grace of the Lord Jesus Christ, and the love of God, and the communion of th
 
 ¶ *The Candidates appearing before the Minister, he shall say,*
 
-HEAR the Words of the Institution of this holy Sacrament, as delivered by our Lord and Saviour to His disciples, before His ascension to the right hand of God:
+HEAR the Words of the Institution of this holy Sacrament, as delivered by our Lord and Savior to His disciples, before His ascension to the right hand of God:
 
 "All power is given unto Me in heaven and in earth. Go ye, therefore, and teach all nations, baptizing them in the Name of the Father, and of the Son, and of the Holy Ghost: teaching them to observe all things whatsoever I have commanded you: and, lo, I am with you alway, even unto the end of the world."
 
 Hence St. Peter, on the day of Pentecost, called upon the people, saying, "Repent, and be baptized, every one of you, in the Name of Jesus Christ, for the remission of sins, and ye shall receive the gift of the Holy Ghost. For the promise is unto you, and to your children, and to all that are afar off, even as many as the Lord our God shall call."
 
-Doubt ye not, therefore, but earnestly believe, that He will number among His people these present Persons, truly repenting and coming unto Him by faith, and that this Baptism with water in His Name shall be unto them the sign and seal of the washing away of their sins, their engrafting into Christ, their regeneration by His Holy Spirit, and their engagement to be the Lord's.
+Do not doubt, therefore, but earnestly believe, that He will number among His people these present Persons, truly repenting and coming to Him by faith, and that this Baptism with water in His Name shall be to them the sign and seal of the washing away of their sins, their engrafting into Christ, their regeneration by His Holy Spirit, and their engagement to be the Lord's.
 
 ¶ *The Minister shall then say to the Persons to be baptized, and each one shall answer, as follows:*
 
-DEARLY beloved, who are come hither desiring to be baptized, you are now faithfully, for your part, in the presence of God and this congregation, to promise and answer to the following Questions.
+DEARLY beloved, who have come here desiring to be baptized, you are now faithfully, for your part, in the presence of God and this congregation, to promise and answer to the following Questions.
 
 *Question.* Do you receive and profess the Christian faith, and in this faith do you desire to be baptized?
 
@@ -926,25 +926,25 @@ DEARLY beloved, who are come hither desiring to be baptized, you are now faithfu
 
 Let us pray.
 
-WE beseech Thee, O Lord, that it may please Thee to receive, and to sanctify with Thy Spirit, these Persons now to be baptized according to Thy Word; that they may obtain the fulness of Thy grace, and ever remain in the number of Thy faithful children; through Jesus Christ our Lord. Amen.
+WE ask You, O Lord, that it may please You to receive, and to sanctify with Your Spirit, these Persons now to be baptized according to Your Word; that they may obtain the fullness of Your grace, and ever remain in the number of Your faithful children; through Jesus Christ our Lord. Amen.
 
 ¶ *Then, all present reverently standing, the Person to be baptized will kneel down, and the Minister, pronouncing his name, shall pour or sprinkle water upon his forehead, saying,*
 
-N——, I baptize thee in the Name of the Father, and of the Son, and of the Holy Ghost. Amen.
+N——, I baptize you in the Name of the Father, and of the Son, and of the Holy Spirit. Amen.
 
 ¶ *Then the Minister shall say,*
 
-WE receive this Person into the congregation of Christ's flock; in the confidence that he shall never be ashamed to confess the faith of Christ crucified, and to continue Christ's faithful soldier and servant unto his life's end.
+WE receive this Person into the congregation of Christ's flock; in the confidence that he shall never be ashamed to confess the faith of Christ crucified, and to continue Christ's faithful soldier and servant to his life's end.
 
 ¶ *Here, if Persons who have been baptized in infancy are to be received to the Lord's Supper, they may be called to come forward; and the Minister, omitting the remainder of this Order, may proceed with the Order for the Confirmation of Baptismal Vows, the newly baptized persons still standing in their places before him.*
 
-¶ *Then the Minister (laying his hand, if such be his discretion, upon the head of every one in order kneeling before him) shall say,*
+¶ *Then the Minister (laying his hand, if such is his discretion, upon the head of every one in order kneeling before him) shall say,*
 
-DEFEND, O Lord, this Thy Child with Thy heavenly grace; that he may continue Thine for ever; and daily increase in Thy Holy Spirit more and more, until he come unto Thy everlasting kingdom. Amen.
+DEFEND, O Lord, this Your Child with Your heavenly grace; that he may continue Yours for ever; and daily increase in Your Holy Spirit more and more, until he comes to Your everlasting kingdom. Amen.
 
 Let us pray.
 
-ALMIGHTY God, our heavenly Father, we give Thee hearty thanks and praise that Thou hast not withheld Thy loving kindness from these Thy servants, but hast given them shelter within the covenant of Thy peace, and makest them to sit down at Thy Table. We entreat Thee of Thy great mercy to perfect in them the good work Thou hast begun; that they, being defended by Thy fatherly hand, and strengthened with power through Thy Spirit in the inward man, may be enabled to keep this covenant without spot, unrebukable, until the day of the appearing of our Lord Jesus Christ. Amen.
+ALMIGHTY God, our heavenly Father, we give You hearty thanks and praise that You have not withheld Your loving-kindness from these Your servants, but have given them shelter within the covenant of Your peace, and make them sit down at Your Table. We entreat You of Your great mercy to perfect in them the good work You have begun; that they, being defended by Your fatherly hand, and strengthened with power through Your Spirit in the inward man, may be enabled to keep this covenant without spot, unrebukable, until the day of the appearing of our Lord Jesus Christ. Amen.
 
 NOW unto Him that is able to keep you from falling, and to present you faultless before the presence of His glory with exceeding joy; to the only wise God our Saviour, be glory and majesty, dominion and power, both now and ever. Amen.
 
@@ -960,9 +960,9 @@ THESE Persons now to be named, who are baptized children of the Church, have bee
 
 ¶ *Then addressing them, the Minister shall say,*
 
-DEARLY beloved, in your Baptism you received the sign and seal of your engrafting into Christ, and were solemnly engaged to be the Lord's. And forasmuch as you now desire to confirm the covenant then made in your behalf, and to obey His commandment by confessing Him before men, you are to make answer faithfully to the following Questions.
+DEARLY beloved, in your Baptism you received the sign and seal of your engrafting into Christ, and were solemnly engaged to be the Lord's. And since you now desire to confirm the covenant then made on your behalf, and to obey His commandment by confessing Him before men, you are to make answer faithfully to the following Questions.
 
-*Question.* Do you here, in the presence of God and this congregation, confess Christ as your Lord, and adhere to that Christian faith wherein you were baptized?
+*Question.* Do you here, in the presence of God and this congregation, confess Christ as your Lord, and adhere to that Christian faith in which you were baptized?
 
 *Answer.* I do.
 
@@ -976,17 +976,17 @@ DEARLY beloved, in your Baptism you received the sign and seal of your engraftin
 
 *Answer.* I do.
 
-¶ *Then the Minister (laying his hand, if such be his discretion, upon the head of every one in order kneeling before him) shall say,*
+¶ *Then the Minister (laying his hand, if such is his discretion, upon the head of every one in order kneeling before him) shall say,*
 
-DEFEND, O Lord, this Thy Child with Thy heavenly grace; that he may continue Thine for ever; and daily increase in Thy Holy Spirit more and more, until he come unto Thy everlasting kingdom. Amen.
+DEFEND, O Lord, this Your Child with Your heavenly grace; that he may continue Yours for ever; and daily increase in Your Holy Spirit more and more, until he comes to Your everlasting kingdom. Amen.
 
 Let us pray.
 
-ALMIGHTY God, our heavenly Father, we give Thee hearty thanks and praise that Thou hast not withheld Thy loving kindness from these Thy servants, but hast given them shelter within the covenant of Thy peace, and makest them to sit down at Thy Table. We entreat Thee of Thy great mercy to perfect in them the good work Thou hast begun; that they, being defended by Thy fatherly hand, and strengthened with power through Thy Spirit in the inward man, may be enabled to keep this covenant without spot, unrebukable, until the day of the appearing of our Lord Jesus Christ. Amen.
+ALMIGHTY God, our heavenly Father, we give You hearty thanks and praise that You have not withheld Your loving-kindness from these Your servants, but have given them shelter within the covenant of Your peace, and make them sit down at Your Table. We entreat You of Your great mercy to perfect in them the good work You have begun; that they, being defended by Your fatherly hand, and strengthened with power through Your Spirit in the inward man, may be enabled to keep this covenant without spot, unrebukable, until the day of the appearing of our Lord Jesus Christ. Amen.
 
 NOW unto Him that is able to keep you from falling, and to present you faultless before the presence of His glory with exceeding joy; to the only wise God our Saviour, be glory and majesty, dominion and power, both now and ever. Amen.
 
-¶ *Children born within the pale of the visible Church, and dedicated to God in Baptism, are under the inspection and government of the Church; and are to be taught to read and repeat the Catechism, the Apostles' Creed, and the Lord's Prayer. They are to be taught to pray, to abhor sin, to fear God, and to obey the Lord Jesus Christ. And when they come to years of discretion, if they be free from scandal, appear sober and steady, and to have sufficient knowledge to discern the Lord's body, they ought to be informed it is their duty and privilege to come to the Lord's Supper.—Directory for Worship, Chap. x, § 1.*
+¶ *Children born within the pale of the visible Church, and dedicated to God in Baptism, are under the inspection and government of the Church; and are to be taught to read and repeat the Catechism, the Apostles' Creed, and the Lord's Prayer. They are to be taught to pray, to abhor sin, to fear God, and to obey the Lord Jesus Christ. And when they come to years of discretion, if they are free from scandal, appear sober and steady, and to have sufficient knowledge to discern the Lord's body, they ought to be informed it is their duty and privilege to come to the Lord's Supper.—Directory for Worship, Chap. x, § 1.*
 
 ¶ *The years of discretion in young Christians cannot be precisely fixed. This must be left to the prudence of the eldership. The Officers of the church are the judges of the qualifications of those to be admitted to sealing ordinances, and of the time when it is proper to admit young Christians to them.—Directory for Worship, Chap. x, § 2.*
 
@@ -998,35 +998,35 @@ NOW unto Him that is able to keep you from falling, and to present you faultless
 
 ¶ *If Communicants are received from other Churches, the Minister may read their names, and, bidding them rise, may address them, saying:*
 
-DEARLY beloved, Having before made public confession of your faith in Christ, and having voluntarily transferred to this church your covenant relation of membership; you now promise to wait diligently upon its ordinances, to study its peace and prosperity, and to yield becoming submission to its government and discipline.
+DEARLY beloved, Having already made public confession of your faith in Christ, and having voluntarily transferred to this church your covenant relation of membership; you now promise to wait diligently upon its ordinances, to study its peace and prosperity, and to yield becoming submission to its government and discipline.
 
 ¶ *Then the Minister may bid all the Members of the church to rise, and speaking for them, he shall say,*
 
-IN the Name of the Lord Jesus, we, the Officers and Members of this church, bid you welcome to its fellowship and to its covenant privileges. We promise to watch over you and seek your welfare in the Lord. And we pray God that all of us, being united in the faith, may be preserved blameless unto the coming of our Lord Jesus Christ. Amen.
+IN the Name of the Lord Jesus, we, the Officers and Members of this church, bid you welcome to its fellowship and to its covenant privileges. We promise to watch over you and seek your welfare in the Lord. And we pray God that all of us, being united in the faith, may be preserved blameless until the coming of our Lord Jesus Christ. Amen.
 
 ## The Order for the Solemnization of Marriage
 
-¶ *Forasmuch as Marriage is a sacred relation, the ground of human fellowship and society, and most precious to mankind; although it be not a Sacrament nor peculiar to the Church of Christ, it is proper that it be solemnized by a lawful Minister, that he may give counsel from the Word of God to those entering holy wedlock, and invoke the Divine blessing upon them.*
+¶ *Since Marriage is a sacred relation, the ground of human fellowship and society, and most precious to mankind; although it is not a Sacrament nor peculiar to the Church of Christ, it is proper that it be solemnized by a lawful Minister, that he may give counsel from the Word of God to those entering holy wedlock, and invoke the Divine blessing upon them.*
 
 ¶ *The Persons to be married shall present themselves before the Minister, the Woman standing at the left hand of the Man. Then, all present reverently standing, the Minister shall say,*
 
-DEARLY beloved, we are assembled here in the presence of God, to join this Man and this Woman in holy Marriage; which is instituted of God, regulated by His commandments, blessed by our Lord Jesus Christ, and to be held in honour among all men. Let us therefore reverently remember that God has established and sanctified Marriage, for the welfare and happiness of mankind. Our Saviour has declared that a man shall forsake his father and mother and cleave unto his wife. By His apostles, He has instructed those who enter into this relation to cherish a mutual esteem and love; to bear with each other's infirmities and weaknesses; to comfort each other in sickness, trouble, and sorrow; in honesty and industry to provide for each other, and for their household, in temporal things; to pray for and encourage each other in the things which pertain to God; and to live together as the heirs of the grace of life.
+DEARLY beloved, we are assembled here in the presence of God, to join this Man and this Woman in holy Marriage; which is instituted of God, regulated by His commandments, blessed by our Lord Jesus Christ, and to be held in honor among all men. Let us therefore reverently remember that God has established and sanctified Marriage, for the welfare and happiness of mankind. Our Savior has declared that a man shall forsake his father and mother and cleave to his wife. By His apostles, He has instructed those who enter into this relation to cherish a mutual esteem and love; to bear with each other's infirmities and weaknesses; to comfort each other in sickness, trouble, and sorrow; in honesty and industry to provide for each other, and for their household, in temporal things; to pray for and encourage each other in the things which pertain to God; and to live together as the heirs of the grace of life.
 
-Forasmuch as these two Persons have come hither to be made one in this holy estate, if there be any here present who knows any just cause why they may not lawfully be joined in Marriage, I require him now to make it known, or ever after to hold his peace.
+Since these two Persons have come here to be made one in this holy estate, if there is anyone here present who knows any just cause why they may not lawfully be joined in Marriage, I require him now to make it known, or ever after to hold his peace.
 
-¶ *Then, speaking unto the Persons who are to be married, he shall say,*
+¶ *Then, speaking to the Persons who are to be married, he shall say,*
 
-I CHARGE you both, before the great God the Searcher of all hearts, that if either of you know any impediment, why ye may not lawfully be joined together in Marriage, ye do now confess it. For be ye well assured that if any persons are joined together otherwise than as God's Word allows, their union is not blessed by Him.
+I CHARGE you both, before the great God the Searcher of all hearts, that if either of you knows any impediment, why you may not lawfully be joined together in Marriage, you now confess it. For be well assured that if any persons are joined together otherwise than as God's Word allows, their union is not blessed by Him.
 
-¶ *Then, if no impediment appear, the Minister shall say,*
+¶ *Then, if no impediment appears, the Minister shall say,*
 
 Let us pray.
 
-ALMIGHTY and ever blessed God, whose Presence is the happiness of every condition, and whose favour sweetens every relation; We beseech Thee to be present and favourable unto these Thy servants, that they may be truly joined in the honourable estate of Marriage, in the covenant of their God. As Thou hast brought them together by Thy providence, sanctify them by Thy Spirit, giving them a new frame of heart fit for their new estate; and enrich them with all grace, whereby they may enjoy the comforts, undergo the cares, endure the trials, and perform the duties of life together as becometh Christians, under Thy heavenly guidance and protection; through our Lord Jesus Christ. Amen.
+ALMIGHTY and ever blessed God, whose Presence is the happiness of every condition, and whose favor sweetens every relation; We ask You to be present and favorable to these Your servants, that they may be truly joined in the honorable estate of Marriage, in the covenant of their God. As You have brought them together by Your providence, sanctify them by Your Spirit, giving them a new frame of heart fit for their new estate; and enrich them with all grace, by which they may enjoy the comforts, undergo the cares, endure the trials, and perform the duties of life together as becomes Christians, under Your heavenly guidance and protection; through our Lord Jesus Christ. Amen.
 
 ¶ *Then the Minister shall say to the Man,*
 
-M——, wilt thou have this Woman to be thy wife, and wilt thou pledge thy troth to her, in all love and honour, in all duty and service, in all faith and tenderness, to live with her, and cherish her, according to the ordinance of God, in the holy bond of Marriage?
+M——, will you have this Woman to be your wife, and will you pledge your troth to her, in all love and honor, in all duty and service, in all faith and tenderness, to live with her, and cherish her, according to the ordinance of God, in the holy bond of Marriage?
 
 ¶ *The Man shall answer,*
 
@@ -1034,7 +1034,7 @@ I will.
 
 ¶ *Then the Minister shall say to the Woman,*
 
-N——, wilt thou have this Man to be thy husband, and wilt thou pledge thy troth to him, in all love and honour, in all duty and service, in all faith and tenderness, to live with him, and cherish him, according to the ordinance of God, in the holy bond of Marriage?
+N——, will you have this Man to be your husband, and will you pledge your troth to him, in all love and honor, in all duty and service, in all faith and tenderness, to live with him, and cherish him, according to the ordinance of God, in the holy bond of Marriage?
 
 ¶ *The Woman shall answer,*
 
@@ -1042,17 +1042,17 @@ I will.
 
 ¶ *Then the Minister may say,*
 
-WHO giveth this Woman to be married to this Man?
+WHO gives this Woman to be married to this Man?
 
 ¶ *Then the father, (or guardian or any friend,) of the Woman shall put her right hand into the hand of the Minister, who shall cause the Man with his right hand to take the Woman by her right hand and to say after him as follows:*
 
 I, M., take thee N., To be my wedded wife; And I do promise and covenant, Before God and these witnesses, To be thy loving and faithful husband, In plenty and in want, In joy and in sorrow, In sickness and in health, As long as we both shall live.
 
-¶ *Then shall they loose their hands; and the Woman with her right hand taking the Man by his right hand, shall likewise say after the Minister:*
+¶ *Then they shall release their hands; and the Woman with her right hand taking the Man by his right hand, shall likewise say after the Minister:*
 
 I, N., take thee M., To be my wedded husband; And I do promise and covenant, Before God and these witnesses, To be thy loving and faithful wife, In plenty and in want, In joy and in sorrow, In sickness and in health, As long as we both shall live.
 
-¶ *Then, if a Ring be provided, it shall be given to the Minister, who shall return it to the Man, who shall then put it upon the fourth finger of the Woman's left hand, saying after the Minister,*
+¶ *Then, if a Ring is provided, it shall be given to the Minister, who shall return it to the Man, who shall then put it upon the fourth finger of the Woman's left hand, saying after the Minister,*
 
 THIS Ring I give thee, In token and pledge, Of our constant faith, And abiding love.
 
@@ -1060,13 +1060,13 @@ THIS Ring I give thee, In token and pledge, Of our constant faith, And abiding l
 
 Let us pray.
 
-MOST merciful and gracious God, of whom the whole family in heaven and earth is named; Bestow upon these Thy servants the seal of Thine approval, and Thy fatherly benediction: granting unto them grace to fulfil, with pure and steadfast affection, the vow and covenant between them made. Guide them together, we beseech Thee, in the way of righteousness and peace, that loving and serving Thee, with one heart and mind, all the days of their life, they may be abundantly enriched with the tokens of Thine everlasting favour, in Jesus Christ our Lord. Amen.
+MOST merciful and gracious God, of whom the whole family in heaven and earth is named; Bestow upon these Your servants the seal of Your approval, and Your fatherly benediction: granting to them grace to fulfill, with pure and steadfast affection, the vow and covenant made between them. Guide them together, we pray, in the way of righteousness and peace, that loving and serving You, with one heart and mind, all the days of their life, they may be abundantly enriched with the tokens of Your everlasting favor, in Jesus Christ our Lord. Amen.
 
 OUR Father which art in heaven, Hallowed be Thy Name. Thy kingdom come. Thy will be done in earth, As it is in heaven. Give us this day our daily bread. And forgive us our debts, As we forgive our debtors. And lead us not into temptation, But deliver us from evil: For Thine is the kingdom, and the power, and the glory, for ever. Amen.
 
-¶ *Then shall the Minister say unto all who are present,*
+¶ *Then the Minister shall say to all who are present,*
 
-BY the authority committed unto me as a Minister of the Church of Christ, I declare that M. and N. are now Husband and Wife, according to the ordinance of God, and the law of the State: in the Name of the Father, and of the Son, and of the Holy Ghost. Amen.
+BY the authority committed to me as a Minister of the Church of Christ, I declare that M. and N. are now Husband and Wife, according to the ordinance of God, and the law of the State: in the Name of the Father, and of the Son, and of the Holy Spirit. Amen.
 
 ¶ *Then, causing the Husband and Wife to join their right hands, the Minister shall say,*
 
@@ -1098,13 +1098,13 @@ I AM the Resurrection, and the Life: he that believeth in Me, though he were dea
 
 Let us pray.
 
-¶ *Then shall he lead the People in the Invocation, using if he will one of the following Prayers, and ending with the Lord's Prayer.*
+¶ *Then he shall lead the People in the Invocation, using, if he wishes, one of the following Prayers, and ending with the Lord's Prayer.*
 
-ALMIGHTY God, the Fountain of all wisdom, who knowest our necessities before we ask and our ignorance in asking; We beseech Thee to have compassion upon our infirmities; and those things, which for our unworthiness we dare not and for our blindness we cannot ask, vouchsafe to give us, for the worthiness of Thy Son, Jesus Christ our Lord. Amen.
+ALMIGHTY God, the Fountain of all wisdom, who know our necessities before we ask and our ignorance in asking; We ask You to have compassion upon our infirmities; and those things which for our unworthiness we dare not, and for our blindness we cannot ask, be pleased to give us, for the worthiness of Your Son, Jesus Christ our Lord. Amen.
 
-ALMIGHTY God, our heavenly Father, who art our Refuge and Strength, and a very present Help in time of trouble; Enable us, we pray Thee, to put our trust in Thee, and seeing that we have an High Priest who is touched with the feeling of our infirmities, may we come boldly unto the throne of grace, that we may obtain mercy, and find grace to help in this time of need; through Jesus Christ our Lord. Amen.
+ALMIGHTY God, our heavenly Father, who are our Refuge and Strength, and a very present Help in time of trouble; Enable us, we pray, to put our trust in You, and seeing that we have a High Priest who is touched with the feeling of our infirmities, may we come boldly to the throne of grace, that we may obtain mercy, and find grace to help in this time of need; through Jesus Christ our Lord. Amen.
 
-OUR Father in heaven, whose pity is infinite and whose will is sovereign; Be pleased to look down upon our sorrow, and for the sake of Thy dear Son, enable us so to hear Thy holy Word, that through patience and comfort of the Scriptures we may have hope; and grant us the consolation of Thy Holy Spirit, that we, humbly acknowledging our many sins, may nevertheless hold fast the assurance of Thy mercy and the blessed hope of everlasting life, through Him who died and rose again and ever liveth with Thee, even Jesus Christ our Lord. Amen.
+OUR Father in heaven, whose pity is infinite and whose will is sovereign; Be pleased to look down upon our sorrow, and for the sake of Your dear Son, enable us so to hear Your holy Word, that through patience and comfort of the Scriptures we may have hope; and grant us the consolation of Your Holy Spirit, that we, humbly acknowledging our many sins, may nevertheless hold fast the assurance of Your mercy and the blessed hope of everlasting life, through Him who died and rose again and ever lives with You, even Jesus Christ our Lord. Amen.
 
 OUR Father which art in heaven, Hallowed be Thy Name. Thy kingdom come. Thy will be done in earth, As it is in heaven. Give us this day our daily bread. And forgive us our debts, As we forgive our debtors. And lead us not into temptation, But deliver us from evil: For Thine is the kingdom, and the power, and the glory, for ever. Amen.
 
@@ -1288,7 +1288,7 @@ They shall hunger no more, neither thirst any more; neither shall the sun light 
 
 THE Lord gave, and the Lord hath taken away: blessed be the Name of the Lord.
 
-¶ *If it be thought desirable, an Address may here be made.*
+¶ *If it is thought desirable, an Address may here be made.*
 
 ¶ *Then a Hymn may be sung, or may be read by the Minister.*
 
@@ -1306,51 +1306,51 @@ I believe in the Holy Ghost; The Holy Catholic Church; The Communion of Saints; 
 
 Let us pray.
 
-¶ *The Minister may, if he so desire, use any of the following Prayers, ordering the same with discretion, and having regard unto the present circumstances.*
+¶ *The Minister may, if he so desires, use any of the following Prayers, ordering the same with discretion, and having regard to the present circumstances.*
 
 ### For Resignation
 
-O LORD God, our heavenly Father, who alone art the Author and the Disposer of our life, from whom our spirits have come, and to whom they shall return; We acknowledge Thy sovereign power and right both to give and to take away, as seemeth good in Thy sight; and we most humbly beseech Thee, that unto all Thy righteous dealings we may yield ourselves with due resignation and patience; being assured that though we understand not the mystery of Thy ways, yet always in faithfulness, O Lord, dost Thou afflict us, and for Thy mercy's sake; through Jesus Christ our Lord. Amen.
+O LORD God, our heavenly Father, who alone are the Author and the Disposer of our life, from whom our spirits have come, and to whom they shall return; We acknowledge Your sovereign power and right both to give and to take away, as seems good in Your sight; and we most humbly pray that to all Your righteous dealings we may yield ourselves with due resignation and patience; being assured that though we do not understand the mystery of Your ways, yet always in faithfulness, O Lord, do You afflict us, and for Your mercy's sake; through Jesus Christ our Lord. Amen.
 
 ### For those Bereaved
 
-ALMIGHTY and most merciful God, the Consolation of the sorrowful, and the Support of the weary, who dost not willingly grieve or afflict the children of men; Look down in tender love and pity, we beseech Thee, upon Thy bereaved servants, whose joy is turned into mourning; so that, while they mourn, they may not murmur, or faint under Thy rod; but, remembering all Thy mercies, Thy promises, and Thy love in Christ, may resign themselves meekly into Thy hands, to be taught and disciplined by Thee. Convert them wholly to Thyself, and fill their desolate hearts with Thy love, that they may cleave more closely to Thee, who bringest life out of death, and who canst turn their grief into eternal joy; through Jesus Christ our Lord. Amen.
+ALMIGHTY and most merciful God, the Consolation of the sorrowful, and the Support of the weary, who do not willingly grieve or afflict the children of men; Look down in tender love and pity, we pray, upon Your bereaved servants, whose joy is turned into mourning; so that, while they mourn, they may not murmur, or faint under Your rod; but, remembering all Your mercies, Your promises, and Your love in Christ, may resign themselves meekly into Your hands, to be taught and disciplined by You. Convert them wholly to Yourself, and fill their desolate hearts with Your love, that they may cleave more closely to You, who bring life out of death, and who can turn their grief into eternal joy; through Jesus Christ our Lord. Amen.
 
 ### For the Right Use of Affliction
 
-O GOD, whose days are without end, and whose mercies cannot be numbered; Make us, we beseech Thee, deeply sensible of the shortness and uncertainty of human life, and let Thy Holy Spirit lead us through this present world in holiness and righteousness all the days of our lives: that, when we shall have served Thee in our generation, we may be gathered unto our fathers, having the testimony of a good conscience; in the communion of Thy holy Church; in the confidence of a certain faith; in the comfort of a reasonable, religious and holy hope; in favour with Thee, our God; and in perfect charity with the world. All which we ask through Jesus Christ our Lord. Amen.
+O GOD, whose days are without end, and whose mercies cannot be numbered; Make us, we pray, deeply sensible of the shortness and uncertainty of human life, and let Your Holy Spirit lead us through this present world in holiness and righteousness all the days of our lives: that, when we shall have served You in our generation, we may be gathered to our fathers, having the testimony of a good conscience; in the communion of Your holy Church; in the confidence of a certain faith; in the comfort of a reasonable, religious and holy hope; in favor with You, our God; and in perfect charity with the world. All which we ask through Jesus Christ our Lord. Amen.
 
 ### For Comfort
 
-O LORD Jesus Christ, we beseech Thee to comfort these Thy servants in their present sorrow; and as Thou didst send the Holy Ghost to be the Comforter of Thy people; strengthen them by the manifestation of His gracious indwelling, that they may be enabled to contemplate the joy of that better home, where Thou art ever seen and worshipped as the Light and Satisfaction of Thine elect, who dwellest with the Father, in the unity of the same Spirit, one God, world without end. Amen.
+O LORD Jesus Christ, we ask You to comfort these Your servants in their present sorrow; and as You sent the Holy Spirit to be the Comforter of Your people, strengthen them by the manifestation of His gracious indwelling, that they may be enabled to contemplate the joy of that better home, where You are ever seen and worshipped as the Light and Satisfaction of Your elect, who dwell with the Father, in the unity of the same Spirit, one God, world without end. Amen.
 
 ### For the Comfort of Christ's Presence
 
-O LORD Jesus Christ, who Thyself didst weep beside the grave, and art touched with the feeling of our sorrows; Fulfil now Thy promise that Thou wilt not leave Thy people comfortless, but wilt come to them. Reveal Thyself unto Thine afflicted servants, and cause them to hear Thee saying, "I am the Resurrection and the Life." Help them, O Lord, to turn to Thee with true discernment, and to abide in Thee through living faith; that, finding now the comfort of Thy presence, they may have also a sure confidence in Thee for all that is to come: until the day break, and these shadows flee away. Hear us for Thy great mercy's sake, O Jesus Christ our Lord. Amen.
+O LORD Jesus Christ, who Yourself wept beside the grave, and are touched with the feeling of our sorrows; Fulfill now Your promise that You will not leave Your people comfortless, but will come to them. Reveal Yourself to Your afflicted servants, and cause them to hear You saying, "I am the Resurrection and the Life." Help them, O Lord, to turn to You with true discernment, and to abide in You through living faith; that, finding now the comfort of Your presence, they may have also a sure confidence in You for all that is to come: until the day break, and these shadows flee away. Hear us for Your great mercy's sake, O Jesus Christ our Lord. Amen.
 
 ### At the Burial of a Child
 
-MOST merciful Father, who hast hastened to take unto Thyself the soul of this child; Grant to us who are still in our pilgrimage, and who walk as yet by faith, that having served Thee with constancy on earth, we may be joined hereafter with Thy blessed children in glory everlasting; through Jesus Christ our Lord. Amen.
+MOST merciful Father, who have hastened to take to Yourself the soul of this child; Grant to us who are still in our pilgrimage, and who walk as yet by faith, that having served You with constancy on earth, we may be joined hereafter with Your blessed children in glory everlasting; through Jesus Christ our Lord. Amen.
 
 ### In Remembrance of God's Grace to the Departed
 
-O GOD, who art the Strength of Thy saints and who redeemest the souls of Thy servants; We bless Thy Name for all those who have died in the Lord, and who now rest from their labours, having received the end of their faith, even the salvation of their souls. Especially we call to remembrance Thy loving-kindness and Thy tender mercies to this Thy servant. For all Thy goodness that withheld not his portion in the joys of this earthly life, and for Thy guiding hand along the way of his pilgrimage; we give Thee thanks and praise. Especially we bless Thee for Thy grace that kindled in his heart the love of Thy dear Name; that enabled him to fight the good fight, to endure unto the end, and to obtain the victory; yea, to become more than conqueror, through Him that loveth us. We magnify Thy holy Name that his trials and temptations being ended, sickness and death being passed, with all the dangers and difficulties of this mortal life, his spirit is at home in Thy presence, at whose right hand dwelleth eternal peace. And grant, O Lord, we beseech Thee, that we who rejoice in the triumph of Thy saints may profit by their example, that becoming followers of their faith and patience, we also may enter with them into an inheritance incorruptible and undefiled, and that fadeth not away; through Jesus Christ our Lord. Amen.
+O GOD, who are the Strength of Your saints and who redeem the souls of Your servants; We bless Your Name for all those who have died in the Lord, and who now rest from their labors, having received the end of their faith, even the salvation of their souls. Especially we call to remembrance Your loving-kindness and Your tender mercies to this Your servant. For all Your goodness that did not withhold his portion in the joys of this earthly life, and for Your guiding hand along the way of his pilgrimage; we give You thanks and praise. Especially we bless You for Your grace that kindled in his heart the love of Your dear Name; that enabled him to fight the good fight, to endure to the end, and to obtain the victory; yes, to become more than conqueror, through Him who loves us. We magnify Your holy Name that his trials and temptations being ended, sickness and death being passed, with all the dangers and difficulties of this mortal life, his spirit is at home in Your presence, at whose right hand dwells eternal peace. And grant, O Lord, we pray, that we who rejoice in the triumph of Your saints may profit by their example, that becoming followers of their faith and patience, we also may enter with them into an inheritance incorruptible and undefiled, and that fadeth not away; through Jesus Christ our Lord. Amen.
 
 ### For Grace to Imitate the Righteous Dead
 
-ALMIGHTY and ever-living God, we yield unto Thee most high praise and hearty thanks for the wonderful grace and virtue declared in all Thy saints, who have been the choice vessels of Thy favour, and the lights of the world in their several generations; most humbly beseeching Thee to give us grace so to follow the example of their steadfastness in Thy faith, and obedience to Thy holy commandments, that at the day of the general resurrection, we, with all those who are of the mystical body of Thy Son, may be set on His right hand, and hear His most joyful voice saying: Come, ye blessed of My Father, inherit the kingdom prepared for you from the foundation of the world. Grant this, O Father, for Jesus Christ's sake, our only Mediator and Advocate. Amen.
+ALMIGHTY and ever-living God, we yield to You most high praise and hearty thanks for the wonderful grace and virtue declared in all Your saints, who have been the choice vessels of Your favor, and the lights of the world in their several generations; most humbly asking You to give us grace so to follow the example of their steadfastness in Your faith, and obedience to Your holy commandments, that at the day of the general resurrection, we, with all those who are of the mystical body of Your Son, may be set on His right hand, and hear His most joyful voice saying: Come, ye blessed of My Father, inherit the kingdom prepared for you from the foundation of the world. Grant this, O Father, for Jesus Christ's sake, our only Mediator and Advocate. Amen.
 
 ¶ *Or this:*
 
-ALMIGHTY God, who hast knit together Thine elect in one communion and fellowship, in the mystical body of Thy Son Christ our Lord; Grant us grace so to follow Thy blessed saints in all virtuous and godly living, that we may come to those unspeakable joys which Thou hast prepared for them that unfeignedly love Thee; through Jesus Christ our Lord. Amen.
+ALMIGHTY God, who have knit together Your elect in one communion and fellowship, in the mystical body of Your Son Christ our Lord; Grant us grace so to follow Your blessed saints in all virtuous and godly living, that we may come to those unspeakable joys which You have prepared for those who unfeignedly love You; through Jesus Christ our Lord. Amen.
 
 ### For Grace to Follow Christ
 
-O LORD Jesus Christ, who by Thy death didst take away the sting of death; Grant unto us Thy servants so to follow in faith where Thou hast led the way, that we may at length fall asleep peacefully in Thee, and awake after Thy likeness; through Thy mercy, who livest with the Father and the Holy Ghost, one God, world without end. Amen.
+O LORD Jesus Christ, who by Your death took away the sting of death; Grant to us Your servants so to follow in faith where You have led the way, that we may at length fall asleep peacefully in You, and awake after Your likeness; through Your mercy, who live with the Father and the Holy Spirit, one God, world without end. Amen.
 
 ### For Endurance unto the End
 
-O GOD, Thou King eternal, immortal, and invisible, the blessed and only Potentate; May we, who cannot see Thee with the eye of flesh, behold Thee steadfastly with the eye of faith, that we may not faint under the manifold trials and temptations of this mortal life, but endure as seeing Thee who art invisible; and grant that having fulfilled Thy will upon earth, we may behold Thy face in heaven, and be made partakers of those unspeakable joys which Thou hast promised to them who love Thy Son Jesus Christ our Lord, and wait His appearing; for whose sake, we beseech Thee to hear us; and unto whom, with Thee the Father and the Holy Ghost, we ascribe all glory and praise, for ever and ever. Amen.
+O GOD, King eternal, immortal, and invisible, the blessed and only Potentate; May we, who cannot see You with the eye of flesh, behold You steadfastly with the eye of faith, that we may not faint under the manifold trials and temptations of this mortal life, but endure as seeing You who are invisible; and grant that having fulfilled Your will upon earth, we may behold Your face in heaven, and be made partakers of those unspeakable joys which You have promised to those who love Your Son Jesus Christ our Lord, and wait for His appearing; for whose sake we ask You to hear us; and to whom, with You the Father and the Holy Spirit, we ascribe all glory and praise, for ever and ever. Amen.
 
 ### The Benediction
 
@@ -1360,15 +1360,15 @@ NOW the God of peace, that brought again from the dead our Lord Jesus, that grea
 
 THE peace of God, which passeth all understanding, keep your hearts and minds in the knowledge and love of God, and of His Son Jesus Christ our Lord; and the blessing of God Almighty, the Father, the Son, and the Holy Ghost, be amongst you, and remain with you always. Amen.
 
-¶ *When they are come to the grave, while the Body of the Dead is made ready to be laid therein, let the Minister say,*
+¶ *When they have come to the grave, while the Body of the Dead is made ready to be laid in it, let the Minister say,*
 
 MAN that is born of a woman hath but a short time to live, and is full of misery. He cometh up, and is cut down like a flower; he fleeth as it were a shadow, and never continueth in one stay.
 
-In the midst of life we are in death: of whom may we seek for succour, but of Thee, O Lord, who for our sins art justly displeased?
+In the midst of life we are in death: of whom may we seek for help, but of You, O Lord, who for our sins are justly displeased?
 
-Yet, O Lord God most holy, O Lord most mighty, O holy and most merciful Saviour, deliver us not into the bitter pains of eternal death.
+Yet, O Lord God most holy, O Lord most mighty, O holy and most merciful Savior, do not deliver us into the bitter pains of eternal death.
 
-Thou knowest, Lord, the secrets of our hearts; shut not Thy merciful ears to our prayer; but spare us, Lord most holy, O God most mighty, O holy and merciful Saviour, Thou most worthy Judge eternal, suffer us not at our last hour, for any pains of death, to fall from Thee.
+You know, Lord, the secrets of our hearts; do not shut Your merciful ears to our prayer; but spare us, Lord most holy, O God most mighty, O holy and merciful Savior, O most worthy Judge eternal, do not allow us at our last hour, for any pains of death, to fall from You.
 
 ¶ *Or this:*
 
@@ -1378,17 +1378,17 @@ For we know that if our earthly house of this tabernacle were dissolved, we have
 
 ¶ *Then, while earth is cast upon the Body by some standing by, the Minister shall say,*
 
-FORASMUCH as it hath pleased Almighty God to take out of this world the soul of our brother departed (or, this child), we therefore commit his body to the ground; earth to earth, ashes to ashes, dust to dust; looking for the Resurrection of the dead, and the life of the world to come, through our Lord Jesus Christ; at whose coming in glorious majesty the earth and the sea shall give up their dead; and the mortal bodies of those who sleep in Him shall be changed, and made like unto His own glorious body; according to the mighty working whereby He is able to subdue all things unto Himself.
+SINCE it has pleased Almighty God to take out of this world the soul of our brother departed (or, this child), we therefore commit his body to the ground; earth to earth, ashes to ashes, dust to dust; looking for the Resurrection of the dead, and the life of the world to come, through our Lord Jesus Christ; at whose coming in glorious majesty the earth and the sea shall give up their dead; and the mortal bodies of those who sleep in Him shall be changed, and made like unto His own glorious body; according to the mighty working whereby He is able to subdue all things unto Himself.
 
-¶ *Then may be said or sung:*
+¶ *Then this may be said or sung:*
 
 I HEARD a voice from heaven saying unto me, Write, Blessed are the dead which die in the Lord from henceforth: Yea, saith the Spirit, that they may rest from their labours; and their works do follow them.
 
 ¶ *Then the Minister shall offer one of the following Prayers, or some other, and shall follow it with the Benediction.*
 
-O MERCIFUL God, the Father of our Lord Jesus Christ, who is the Resurrection and the Life; in whom whosoever believeth shall live, though he die; and whosoever liveth and believeth in Him shall not die eternally; We humbly beseech Thee, O Father, to raise us from the death of sin unto the life of righteousness; that, when we shall depart this life, we may rest in Him; and that at the Resurrection we may be found acceptable in Thy sight, and receive that blessing which Thy well-beloved Son shall then pronounce to all that love and serve Thee, saying, Come, ye blessed children of My Father, receive the kingdom prepared for you from the beginning of the world: grant this, we beseech Thee, O merciful Father, through Jesus Christ, our Mediator and Redeemer. Amen.
+O MERCIFUL God, the Father of our Lord Jesus Christ, who is the Resurrection and the Life; in whom whosoever believeth shall live, though he die; and whosoever liveth and believeth in Him shall not die eternally; We humbly ask You, O Father, to raise us from the death of sin to the life of righteousness; that, when we shall depart this life, we may rest in Him; and that at the Resurrection we may be found acceptable in Your sight, and receive that blessing which Your well-beloved Son shall then pronounce to all who love and serve You, saying, Come, ye blessed children of My Father, receive the kingdom prepared for you from the beginning of the world: grant this, we pray, O merciful Father, through Jesus Christ, our Mediator and Redeemer. Amen.
 
-ALMIGHTY God, with whom do live the spirits of them that depart hence in the Lord, and with whom the souls of the faithful, after they are delivered from the burden of the flesh, are in joy and felicity; We give Thee hearty thanks for that it hath pleased Thee to deliver them out of the miseries of this sinful world; beseeching Thee, that it may please Thee, of Thy gracious goodness, shortly to accomplish the number of Thine elect, and to hasten Thy kingdom; that we, with all those that are departed in the true faith of Thy holy Name, may have our perfect consummation and bliss, both in body and soul, in Thy eternal and everlasting glory; through Jesus Christ our Lord. Amen.
+ALMIGHTY God, with whom live the spirits of those who depart from here in the Lord, and with whom the souls of the faithful, after they are delivered from the burden of the flesh, are in joy and felicity; We give You hearty thanks that it has pleased You to deliver them out of the miseries of this sinful world; asking You that it may please You, of Your gracious goodness, shortly to accomplish the number of Your elect, and to hasten Your kingdom; that we, with all those who have departed in the true faith of Your holy Name, may have our perfect consummation and bliss, both in body and soul, in Your eternal and everlasting glory; through Jesus Christ our Lord. Amen.
 
 ### The Benediction
 
@@ -1398,13 +1398,13 @@ THE grace of the Lord Jesus Christ, and the love of God, and the communion of th
 
 ¶ *The same Order may be used; but the Words of Committal shall be as follows:*
 
-FORASMUCH as it hath pleased Almighty God to take out of this world the soul of our brother departed (or, this child), we therefore commit his body to the deep; looking for the Resurrection of the dead, and the life of the world to come, through our Lord Jesus Christ; at whose coming in glorious majesty the sea shall give up her dead; and the mortal bodies of those who sleep in Him shall be changed, and made like unto His own glorious body; according to the mighty working whereby He is able to subdue all things unto Himself.
+SINCE it has pleased Almighty God to take out of this world the soul of our brother departed (or, this child), we therefore commit his body to the deep; looking for the Resurrection of the dead, and the life of the world to come, through our Lord Jesus Christ; at whose coming in glorious majesty the sea shall give up her dead; and the mortal bodies of those who sleep in Him shall be changed, and made like unto His own glorious body; according to the mighty working whereby He is able to subdue all things unto Himself.
 
 ## The Order for the Licensing of Candidates to Preach the Gospel
 
 ¶ *Men who are seeking an entrance to the Christian Ministry, having been taken under the care of Presbytery, and having fulfilled the requirements of the Form of Government (Chap. xiv), are then to be licensed by Presbytery to preach the Gospel and so to make a competent trial of their gifts for the sacred office.*
 
-¶ *At the discretion of Presbytery, the Licensing of Candidates may follow a specially appointed Service of praise, prayer, and the preaching of the Word; or it may be done, after the examination of Candidates, at a regular session of Presbytery. The appointed hour being come, the Moderator shall call the Presbytery and all present to attend with reverence the Licensure of Candidates for the Christian Ministry.*
+¶ *At the discretion of Presbytery, the Licensing of Candidates may follow a specially appointed Service of praise, prayer, and the preaching of the Word; or it may be done, after the examination of Candidates, at a regular session of Presbytery. The appointed hour having come, the Moderator shall call the Presbytery and all present to attend with reverence the Licensure of Candidates for the Christian Ministry.*
 
 ¶ *Let all stand while the Moderator, or the Minister appointed, reads the following Sentences.*
 
@@ -1422,7 +1422,7 @@ LET us pray for the increase of the Ministry, the welfare of the Church, and the
 
 ¶ *Then the Moderator shall say:*
 
-BRETHREN in Christ: God by His Holy Spirit calls men to serve Him according to the gifts bestowed upon them: and to chosen servants He grants this grace that they should make known the riches of Christ by the preaching of the Gospel. Unto His Church He has given commandment not only to pray for the increase of the Ministry, but also to prove and try those who seek the sacred office, that no man be ordained suddenly, but that men of pure heart and good conduct, able to speak to edification, be found for the service of the sanctuary. Therefore it is proper that those who desire to give themselves to this Ministry should not only prepare themselves by study, prayer, and good works, but should also have opportunity to make trial of their gifts by the experience of preaching, and to approve themselves to the churches as workmen fitted rightly to divide the Word of Truth. According to the Form of Government of this Church the oversight of these matters is committed to the Presbytery, which is to examine every Candidate for the sacred office in regard to his religious experience, his motives in seeking the Ministry, and his proficiency in that knowledge which is necessary for a teacher of men. Having made this examination, and being satisfied with its result, this Presbytery of —— is ready to license and approve, as Probationers for the Ministry, the following Persons, [here let the Candidates be named,] who will now present themselves before their brethren.
+BRETHREN in Christ: God by His Holy Spirit calls men to serve Him according to the gifts bestowed upon them: and to chosen servants He grants this grace that they should make known the riches of Christ by the preaching of the Gospel. To His Church He has given commandment not only to pray for the increase of the Ministry, but also to prove and try those who seek the sacred office, that no man be ordained suddenly, but that men of pure heart and good conduct, able to speak to edification, be found for the service of the sanctuary. Therefore it is proper that those who desire to give themselves to this Ministry should not only prepare themselves by study, prayer, and good works, but should also have opportunity to make trial of their gifts by the experience of preaching, and to approve themselves to the churches as workmen fitted rightly to divide the Word of Truth. According to the Form of Government of this Church the oversight of these matters is committed to the Presbytery, which is to examine every Candidate for the sacred office in regard to his religious experience, his motives in seeking the Ministry, and his proficiency in that knowledge which is necessary for a teacher of men. Having made this examination, and being satisfied with its result, this Presbytery of —— is ready to license and approve, as Probationers for the Ministry, the following Persons, [here let the Candidates be named,] who will now present themselves before their brethren.
 
 ¶ *Let the Candidates stand before the Moderator while he asks the following Questions; to each of which they shall answer, saying, I do.*
 
@@ -1436,7 +1436,7 @@ Do you promise to submit yourself, in the Lord, to the government of this Presby
 
 ¶ *The Candidates shall remain standing, and the Moderator, calling upon all the Members of the Presbytery to rise, shall say:*
 
-IN the Name of the Lord Jesus Christ, and by that authority which He hath given to the Church for its edification, we do license you to preach the Gospel, wherever God in His providence may call you: and for this purpose, [here the Moderator may take each of the Candidates by the hand, saying to each,] may the blessing of God rest upon you, and the Spirit of Christ fill your heart. Amen.
+IN the Name of the Lord Jesus Christ, and by that authority which He has given to the Church for its edification, we do license you to preach the Gospel, wherever God in His providence may call you: and for this purpose, [here the Moderator may take each of the Candidates by the hand, saying to each,] may the blessing of God rest upon you, and the Spirit of Christ fill your heart. Amen.
 
 ¶ *Then may be sung the following or some other Hymn:*
 
@@ -1482,9 +1482,9 @@ Let us pray.
 
 ¶ *The Prayer may be offered in these or other fitting words:*
 
-O GOD, the Father eternal, who hast made Thy risen and ever-glorious Son, Jesus Christ, Head over all things to Thy Church: Bestow upon these Thy servants, whom we bless in Thy Name, the sevenfold gifts of Thy Holy Spirit, that they may be endowed with power to preach Thy Gospel, and may prove their fitness to serve Thee in the Ministry of the Word. Grant unto them riches of heavenly wisdom, and guidance of divine love, that they may live near to God and near to man, in fellowship with Thy Son. Strengthen their faith, confirm their courage, and deepen their joy in work for Thee, renewing in their hearts and on their lips the glad tidings of salvation, and giving unto them the great reward of those that turn many to righteousness. So may the time of their probation bear fruit unto everlasting life, and lead them into the full assurance that Thou hast called and blessed them for the ministry of the Gospel.
+O GOD, the Father eternal, who have made Your risen and ever-glorious Son, Jesus Christ, Head over all things to Your Church: Bestow upon these Your servants, whom we bless in Your Name, the sevenfold gifts of Your Holy Spirit, that they may be endowed with power to preach Your Gospel, and may prove their fitness to serve You in the Ministry of the Word. Grant to them riches of heavenly wisdom, and guidance of divine love, that they may live near to God and near to man, in fellowship with Your Son. Strengthen their faith, confirm their courage, and deepen their joy in work for You, renewing in their hearts and on their lips the glad tidings of salvation, and giving to them the great reward of those who turn many to righteousness. So may the time of their probation bear fruit to everlasting life, and lead them into the full assurance that You have called and blessed them for the ministry of the Gospel.
 
-Lord, hasten the coming of Thy kingdom; build up Thy holy Church throughout the world; hear the prayers and prosper the labours of all Thy good and faithful servants; and Thine shall be the glory for ever and ever. Amen.
+Lord, hasten the coming of Your kingdom; build up Your holy Church throughout the world; hear the prayers and prosper the labors of all Your good and faithful servants; and Yours shall be the glory for ever and ever. Amen.
 
 THE grace of the Lord Jesus Christ, and the love of God, and the communion of the Holy Ghost, be with you all. Amen.
 
@@ -1494,7 +1494,7 @@ THE grace of the Lord Jesus Christ, and the love of God, and the communion of th
 
 ¶ *When the Presbytery shall approve a Candidate who has fulfilled all the other requirements of the Form of Government, but has not received a call to the Pastorate of a particular congregation, he may be ordained to the work of the Ministry as an Evangelist, and the necessary changes shall be made in the following Order.*
 
-¶ *The day appointed for Ordination being come, and the Presbytery convened, a Minister previously designated shall conduct Divine Service according to the usual Order, or such special Order as the Presbytery may deem proper, and the same, or another appointed to preside, shall conduct the Ordination, saying as follows:*
+¶ *The day appointed for Ordination having come, and the Presbytery convened, a Minister previously designated shall conduct Divine Service according to the usual Order, or such special Order as the Presbytery may deem proper, and the same, or another appointed to preside, shall conduct the Ordination, saying as follows:*
 
 THE Presbytery of —— —— is here assembled to ordain to the sacred office of the Ministry, A. B., [whom you have called to be your Pastor. We have duly considered the call which you have presented to him through us.[^p93]] We have diligently inquired into his soundness of doctrine and holiness of life, and are certified of his meetness in respect to gifts and learning for this excellent work, as required in God's holy Word. We, therefore, present him before you to receive ordination with the laying on of the hands of the Presbytery.
 
@@ -1502,9 +1502,9 @@ THE Presbytery of —— —— is here assembled to ordain to the sacred office
 
 ¶ *Then the Candidate shall stand before the Presiding Minister, who shall say:*
 
-DEARLY beloved in the Lord, you have heard both in your examination by the Presbytery, and in the words already spoken in this place, and in the lessons taken out of Holy Scripture, of what dignity and of how great importance is this Ministry whereunto you are called. And now again we exhort you, in the Name of our Lord Jesus Christ, that you have in remembrance unto how high and weighty an office you are to be ordained; that is to say, to be a messenger, watchman, and steward of the Lord, to teach and admonish, to feed and provide for, the Lord's family; and to look for the sheep of Christ that are dispersed abroad in the midst of this evil world, that they may be saved through Him for ever.
+DEARLY beloved in the Lord, you have heard both in your examination by the Presbytery, and in the words already spoken in this place, and in the lessons taken out of Holy Scripture, of what dignity and of how great importance is this Ministry to which you are called. And now again we exhort you, in the Name of our Lord Jesus Christ, that you have in remembrance how high and weighty an office you are to be ordained to; that is to say, to be a messenger, watchman, and steward of the Lord, to teach and admonish, to feed and provide for, the Lord's family; and to look for the sheep of Christ that are dispersed abroad in the midst of this evil world, that they may be saved through Him for ever.
 
-We have good hope that you have well weighed these things before this time, and that you have clearly determined by God's grace to give yourself wholly to this office, whereunto it hath pleased God to call you; so that you may daily grow stronger in your Ministry, and may be a wholesome and godly example and pattern for the people to follow.
+We have good hope that you have well weighed these things before this time, and that you have clearly determined by God's grace to give yourself wholly to this office, to which it has pleased God to call you; so that you may daily grow stronger in your Ministry, and may be a wholesome and godly example and pattern for the people to follow.
 
 And now that this present congregation of Christ may also understand your mind and will in these things, and that this your promise may the more move you to do your duty, you shall answer plainly to all these things which we, in the Name of God, and of His Church, demand of you.
 
@@ -1532,7 +1532,7 @@ Do you promise to be zealous and faithful in maintaining the truths of the Gospe
 
 *Answer:* I do so promise.
 
-Do you engage to be faithful and diligent in the exercise of all private and personal duties, which become you as a Christian and a Minister of the Gospel; as well as in all relative duties, and the public duties of your office; endeavouring to adorn the profession of the Gospel by your conversation; and walking with exemplary piety before the flock over which God shall make you overseer?
+Do you engage to be faithful and diligent in the exercise of all private and personal duties, which become you as a Christian and a Minister of the Gospel; as well as in all relative duties, and the public duties of your office; endeavoring to adorn the profession of the Gospel by your conversation; and walking with exemplary piety before the flock over which God shall make you overseer?
 
 *Answer:* I do so engage, relying on God's grace.
 
@@ -1558,21 +1558,21 @@ ARE you now willing to undertake the work of an Evangelist; and do you promise t
 >
 > Do you promise to receive the Word of Truth from his mouth, with meekness and love; and to submit to him in the due exercise of discipline?
 >
-> Do you promise to encourage him in his arduous labour, and to assist his endeavours for your instruction and spiritual edification?
+> Do you promise to encourage him in his arduous labor, and to assist his endeavors for your instruction and spiritual edification?
 >
-> Do you engage to continue to him, while he is your Pastor, that competent worldly maintenance which you have promised; and whatever else you may see needful for the honour of religion and his comfort among you?
+> Do you engage to continue to him, while he is your Pastor, that competent worldly maintenance which you have promised; and whatever else you may see needful for the honor of religion and his comfort among you?
 >
 > ¶ *The People having answered these Questions in the affirmative:*
 
-¶ *The Candidate shall then kneel, and the Presiding Minister shall by Prayer, and with the Laying on of the Hands of the Presbytery, according to the Apostolic example, solemnly Ordain him to the holy office of the Gospel Ministry, using if he will one of the following Prayers:*
+¶ *The Candidate shall then kneel, and the Presiding Minister shall by Prayer, and with the Laying on of the Hands of the Presbytery, according to the Apostolic example, solemnly Ordain him to the holy office of the Gospel Ministry, using, if he wishes, one of the following Prayers:*
 
 Let us pray.
 
-ALMIGHTY God and everlasting Father, who dost govern all things in heaven and earth by Thy wisdom, and hast from the beginning ordained for Thy Church the Ministry of Reconciliation, giving some apostles, and some prophets, and some evangelists, and some pastors and teachers, for the perfecting of the saints, for the work of the Ministry, and for the edifying of the body of Christ; Look in mercy, we beseech Thee, on this Thy servant, upon whom we lay our hands in Thy Name [here the Presiding Minister and the other Ministers shall lay their hands upon the head of the Candidate], and whom we thus ordain and set apart to the holy office of the Ministry. Pour down upon him the grace of Thy Holy Spirit, confirming in heaven what we do in Thy Church on earth, and owning him as a true Minister of the Gospel of Thy Son. Vouchsafe to him that authority and gentleness, that purity and spiritual discernment, that zeal and meekness, which shall make him an example and guide to the flock; that so making full proof of his Ministry, and continuing in the same, he may both save himself and those that hear him. Grant this, O heavenly Father, for the love of Thy dear Son Jesus Christ our Lord. Amen.
+ALMIGHTY God and everlasting Father, who govern all things in heaven and earth by Your wisdom, and have from the beginning ordained for Your Church the Ministry of Reconciliation, giving some apostles, and some prophets, and some evangelists, and some pastors and teachers, for the perfecting of the saints, for the work of the Ministry, and for the edifying of the body of Christ; Look in mercy, we pray, on this Your servant, upon whom we lay our hands in Your Name [here the Presiding Minister and the other Ministers shall lay their hands upon the head of the Candidate], and whom we thus ordain and set apart to the holy office of the Ministry. Pour down upon him the grace of Your Holy Spirit, confirming in heaven what we do in Your Church on earth, and owning him as a true Minister of the Gospel of Your Son. Grant to him that authority and gentleness, that purity and spiritual discernment, that zeal and meekness, which shall make him an example and guide to the flock; that so making full proof of his Ministry, and continuing in the same, he may both save himself and those who hear him. Grant this, O heavenly Father, for the love of Your dear Son Jesus Christ our Lord. Amen.
 
 ¶ *Or this:*
 
-O LORD, to whom all power is given in heaven and in earth; who hast so loved the world, that to redeem and purify sinners Thou didst humble Thyself to the death of the cross, and there shed Thy most innocent blood; Look upon us mercifully, O Lord, Thou only Prophet, Priest, and King to Thine own flock; and grant unto this Thy servant, upon whom we lay our hands in Thy Name [here the Presiding Minister and the other Ministers shall lay their hands upon the head of the Candidate], and whom we thus ordain and set apart to the work of the Ministry, such endowment of Thy Holy Spirit, that he may rightly divide Thy Word, to the conversion of sinners, the instruction of Thy flock, and the overthrow of error and vice. Give unto him, good Lord, Thy grace and wisdom, whereby the enemies of Thy truth may be confounded, the ignorant enlightened, and Thy sheep fed in the wholesome pastures of Thy holy Word. Multiply Thy graces upon him. Comfort and strengthen him in all virtue. Govern and guide his Ministry to the praise of Thy holy Name, the promotion of Thy kingdom, the comfort of Thy Church, and to the spread of Thy blessed Gospel throughout the whole world; and unto Thee, with the Father, and with the Holy Ghost, be all honour, praise, and glory, now and ever. Amen.
+O LORD, to whom all power is given in heaven and in earth; who have so loved the world, that to redeem and purify sinners You humbled Yourself to the death of the cross, and there shed Your most innocent blood; Look upon us mercifully, O Lord, the only Prophet, Priest, and King of Your own flock; and grant to this Your servant, upon whom we lay our hands in Your Name [here the Presiding Minister and the other Ministers shall lay their hands upon the head of the Candidate], and whom we thus ordain and set apart to the work of the Ministry, such endowment of Your Holy Spirit, that he may rightly divide Your Word, to the conversion of sinners, the instruction of Your flock, and the overthrow of error and vice. Give to him, good Lord, Your grace and wisdom, by which the enemies of Your truth may be confounded, the ignorant enlightened, and Your sheep fed in the wholesome pastures of Your holy Word. Multiply Your graces upon him. Comfort and strengthen him in all virtue. Govern and guide his Ministry to the praise of Your holy Name, the promotion of Your kingdom, the comfort of Your Church, and to the spread of Your blessed Gospel throughout the whole world; and to You, with the Father, and with the Holy Spirit, be all honor, praise, and glory, now and ever. Amen.
 
 ¶ *Prayer being ended, the newly ordained Minister shall rise, and the Presiding Minister, addressing him, shall say:*
 
@@ -1586,11 +1586,11 @@ WE give you the right hand of fellowship, to take part of this Ministry with us.
 
 ¶ *Then a Hymn may be sung.*
 
-¶ *Then shall the following or some other Prayer be offered by the Minister appointed; the People reverently bowing down.*
+¶ *Then the following or some other Prayer shall be offered by the Minister appointed; the People reverently bowing down.*
 
 Let us pray.
 
-EVER living God, our heavenly Father, who didst of old time call those whom Thou wouldst for Thy service in the Ministry, and who by Thy providence dost continue to raise up evangelists, pastors, and teachers for Thy Church; Bless, we entreat Thee, Thy servant here set apart to be a Minister [and a Pastor, and the congregation committed to his care]. Endue them with spiritual grace; help them to perform the vows that they have made; and continuing faithful unto death, may they at length receive the crown of life which the Lord, the righteous Judge, will give them in that day. Grant this, O Lord, for the sake of Thy dear Son Jesus Christ our Lord, who, with Thee and the Holy Spirit, liveth and reigneth, one God, world without end. Amen.
+EVER living God, our heavenly Father, who of old called those whom You would for Your service in the Ministry, and who by Your providence continue to raise up evangelists, pastors, and teachers for Your Church; Bless, we entreat You, Your servant here set apart to be a Minister [and a Pastor, and the congregation committed to his care]. Endue them with spiritual grace; help them to perform the vows that they have made; and continuing faithful unto death, may they at length receive the crown of life which the Lord, the righteous Judge, will give them in that day. Grant this, O Lord, for the sake of Your dear Son Jesus Christ our Lord, who, with You and the Holy Spirit, lives and reigns, one God, world without end. Amen.
 
 ¶ *Then the Congregation shall be dismissed with this or some other Benediction, the People still bowing down:*
 
@@ -1604,7 +1604,7 @@ THE peace of God, which passeth all understanding, keep your hearts and minds in
 
 ¶ *The Sermon being ended, the Presiding Minister shall state to the congregation the design of their meeting, and recite the proceedings of the Presbytery in relation thereto, in the following words, or such other as may be applicable to the circumstances.*
 
-DEARLY beloved: The call of this congregation to the Reverend A. B. to become your Pastor, has been duly presented to the Presbytery of ——, and by them carefully considered. After inquiring into all the circumstances, it has been placed in his hands, and he has signified to the Presbytery his willingness to accept thereof. We are here at this present time by appointment and order of the said Presbytery; and by its authority do now proceed to constitute and install him, in the Name of the Lord Jesus Christ, as the Pastor of this congregation.
+DEARLY beloved: The call of this congregation to the Reverend A. B. to become your Pastor, has been duly presented to the Presbytery of ——, and by them carefully considered. After inquiring into all the circumstances, it has been placed in his hands, and he has signified to the Presbytery his willingness to accept it. We are here at this present time by appointment and order of the said Presbytery; and by its authority we now proceed to constitute and install him, in the Name of the Lord Jesus Christ, as the Pastor of this congregation.
 
 ¶ *Then the Minister to be installed shall stand before the Presiding Minister, who shall propose to him the following Questions:*
 
@@ -1616,7 +1616,7 @@ Do you conscientiously believe and declare, as far as you know your own heart, t
 
 *Answer.* I so believe and declare.
 
-Do you solemnly promise, that, by the assistance of the grace of God, you will endeavour faithfully to discharge all the duties of a Pastor to this congregation; and will be careful to maintain a deportment in all respects becoming a Minister of the Gospel of Christ, agreeably to your ordination engagements?
+Do you solemnly promise, that, by the assistance of the grace of God, you will endeavor faithfully to discharge all the duties of a Pastor to this congregation; and will be careful to maintain a deportment in all respects becoming a Minister of the Gospel of Christ, agreeably to your ordination engagements?
 
 *Answer.* I do.
 
@@ -1626,29 +1626,29 @@ DO you, the People of this congregation, continue to profess your readiness to r
 
 Do you promise to receive the Word of Truth from his mouth, with meekness and love; and to submit to him in the due exercise of discipline?
 
-Do you promise to encourage him in his arduous labour, and to assist his endeavours for your instruction and spiritual edification?
+Do you promise to encourage him in his arduous labor, and to assist his endeavors for your instruction and spiritual edification?
 
-Do you engage to continue to him, while he is your Pastor, that competent worldly maintenance which you have promised; and whatever else you may see needful for the honour of religion and his comfort among you?
+Do you engage to continue to him, while he is your Pastor, that competent worldly maintenance which you have promised; and whatever else you may see needful for the honor of religion and his comfort among you?
 
 ¶ *The People having answered these Questions in the affirmative, the Presiding Minister shall say:*
 
-IN the Name of the Lord Jesus Christ, the great Head of the Church, and by authority of this Presbytery, I do pronounce and declare that the Reverend A. B., is duly constituted the Pastor of this congregation. Let us therefore pray, dearly beloved, unto God, the Fountain of all grace and glory, that He may be pleased to sanctify with His heavenly blessing this relation of Pastor and People which has now in His Name been established.
+IN the Name of the Lord Jesus Christ, the great Head of the Church, and by authority of this Presbytery, I do pronounce and declare that the Reverend A. B., is duly constituted the Pastor of this congregation. Let us therefore pray, dearly beloved, to God, the Fountain of all grace and glory, that He may be pleased to sanctify with His heavenly blessing this relation of Pastor and People which has now in His Name been established.
 
 Let us pray.
 
-ALMIGHTY God and everlasting Father, who dost govern all things in heaven and earth by Thy wisdom, and hast from the beginning ordained for Thy Church the Ministry of Reconciliation; We thank Thee for Thy goodness to us this day in Thy House: and we beseech Thee to continue Thy loving-kindness to this congregation, and to Thy servant who has now been set over them in holy things. Send down upon him the gifts of Thy Holy Spirit; and so replenish him from above that he may rightly divide the Word of Truth; so endue him with purity of life that he may be an example to this flock: and grant that in all things he may faithfully serve before Thee, to the glory of Thy great Name, in the conversion of sinners unto Thee, and the upbuilding of Thy people in holiness and in all Christian service unto salvation.
+ALMIGHTY God and everlasting Father, who govern all things in heaven and earth by Your wisdom, and have from the beginning ordained for Your Church the Ministry of Reconciliation; We thank You for Your goodness to us this day in Your House: and we ask You to continue Your loving-kindness to this congregation, and to Your servant who has now been set over them in holy things. Send down upon him the gifts of Your Holy Spirit; and so replenish him from above that he may rightly divide the Word of Truth; so endue him with purity of life that he may be an example to this flock: and grant that in all things he may faithfully serve before You, to the glory of Your great Name, in the conversion of sinners to You, and the upbuilding of Your people in holiness and in all Christian service to salvation.
 
-O Lord God, the Sanctifier of the faithful, visit, we pray Thee, this congregation with Thy love and favour; prepare their hearts to receive Thy Word; enlighten their minds more and more with the light of the everlasting Gospel; increase in them true religion; nourish them with all goodness; and of Thy great mercy keep them in the unity of the Spirit and in the bonds of love; through Jesus Christ our Lord; whom, with Thee and the Holy Ghost, we worship and glorify as one God, world without end. Amen.
+O Lord God, the Sanctifier of the faithful, visit, we pray You, this congregation with Your love and favor; prepare their hearts to receive Your Word; enlighten their minds more and more with the light of the everlasting Gospel; increase in them true religion; nourish them with all goodness; and of Your great mercy keep them in the unity of the Spirit and in the bonds of love; through Jesus Christ our Lord; whom, with You and the Holy Spirit, we worship and glorify as one God, world without end. Amen.
 
 ¶ *Prayer being ended, the Presiding Minister, or some other appointed for the purpose, shall give a solemn Charge to the Pastor, and to the People.*
 
 ¶ *A Hymn appropriate to the occasion may then be sung.*
 
-¶ *Then shall the following or some other Prayer be offered by the Minister appointed, the People reverently bowing down.*
+¶ *Then the following or some other Prayer shall be offered by the Minister appointed, the People reverently bowing down.*
 
 Let us pray.
 
-O LORD, our heavenly Father, we beseech Thee not only for Thy favour upon this Pastor and People, but also that Thou wilt bless Thy whole Church in this land, and throughout the world. Gather Thy true people into the unity of the faith, and take from them all bitterness and unkindness, all needless divisions and misunderstandings. May grace, mercy, and peace be multiplied to all who love our Lord Jesus Christ in sincerity. Pour out Thy Holy Spirit upon all men, and hasten the time when every people shall be blessed in the knowledge of Thee, and of Thy Son Jesus Christ our Lord. Amen.
+O LORD, our heavenly Father, we pray to You not only for Your favor upon this Pastor and People, but also that You will bless Your whole Church in this land, and throughout the world. Gather Your true people into the unity of the faith, and take from them all bitterness and unkindness, all needless divisions and misunderstandings. May grace, mercy, and peace be multiplied to all who love our Lord Jesus Christ in sincerity. Pour out Your Holy Spirit upon all men, and hasten the time when every people shall be blessed in the knowledge of You, and of Your Son Jesus Christ our Lord. Amen.
 
 ¶ *Then the congregation shall be dismissed with this or some other Benediction, the People still bowing down.*
 
@@ -1658,11 +1658,11 @@ THE peace of God, which passeth all understanding, keep your hearts and minds in
 
 ## The Order for the Ordination of Ruling Elders
 
-¶ *Ruling Elders are properly the representatives of the people, chosen by them for the purpose of exercising government and discipline, in conjunction with pastors or ministers (Form of Government, Chap. v). When any person shall have been elected to the office of Ruling Elder, and shall have declared his willingness to accept thereof, he shall be set apart to his office in the manner prescribed by the Form of Government (Chap. xiii).*
+¶ *Ruling Elders are properly the representatives of the people, chosen by them for the purpose of exercising government and discipline, in conjunction with pastors or ministers (Form of Government, Chap. v). When any person shall have been elected to the office of Ruling Elder, and shall have declared his willingness to accept it, he shall be set apart to his office in the manner prescribed by the Form of Government (Chap. xiii).*
 
 ¶ *Divine Service having been celebrated according to the usual Order, the Persons to be ordained shall, after the Sermon, present themselves before the pulpit at the call of the Minister, who shall thus address the congregation:*
 
-DEARLY Beloved: As in the Old Testament the Elders exercised an honourable office of government among the people of God, so also in the New Testament the Apostle ordained Elders in every church; commanding that they that rule well be counted worthy of double honour, especially they who labour in the Word and doctrine.
+DEARLY Beloved: As in the Old Testament the Elders exercised an honorable office of government among the people of God, so also in the New Testament the Apostle ordained Elders in every church; commanding that they that rule well be counted worthy of double honour, especially they who labour in the Word and doctrine.
 
 Therefore, this Church has from the beginning included in her government not only Ministers and Pastors, who are to preach the Gospel and administer the Sacraments in the Name of Christ and as His representatives: but also Ruling Elders chosen by the people to represent them, and to be joined with Pastors and Ministers in the exercise of government and discipline in the Church.
 
@@ -1670,7 +1670,7 @@ These Ruling Elders in each congregation, together with the Pastor, constitute t
 
 ¶ *Then the Minister, addressing the Elders-elect, shall say,*
 
-FORASMUCH as you have declared your willingness to take this office upon you, I now require you to answer the following Questions, appointed by the Church to be put to those who are to be ordained as Elders.
+SINCE you have declared your willingness to take this office upon you, I now require you to answer the following Questions, appointed by the Church to be put to those who are to be ordained as Elders.
 
 Do you believe the Scriptures of the Old and New Testaments to be the Word of God, the only infallible rule of faith and practice?
 
@@ -1678,19 +1678,19 @@ Do you sincerely receive and adopt the Confession of Faith of this Church, as co
 
 Do you approve of the government and discipline of the Presbyterian Church in these United States?
 
-Do you accept the office of Ruling Elder in this congregation, and promise faithfully to perform all the duties thereof?
+Do you accept the office of Ruling Elder in this congregation, and promise faithfully to perform all its duties?
 
 Do you promise to study the peace, unity, and purity of the Church?
 
 ¶ *The Elders-elect having answered these Questions in the affirmative, the Minister shall address to the Members of the church the following Question:*
 
-DO you, the Members of this church, acknowledge and receive these brethren as Ruling Elders, and do you promise to yield them all that honour, encouragement, and obedience in the Lord, to which their office, according to the Word of God, and the constitution of this Church, entitles them?
+DO you, the Members of this church, acknowledge and receive these brethren as Ruling Elders, and do you promise to yield them all that honor, encouragement, and obedience in the Lord, to which their office, according to the Word of God, and the constitution of this Church, entitles them?
 
 ¶ *The Members of the church having answered this Question in the affirmative, by holding up their right hands, the Minister shall proceed to set apart the Candidates to their office, by Prayer, (and if desired, the Laying on of Hands,) the Elders-elect devoutly kneeling.*
 
 Let us pray.
 
-SET apart, we beseech Thee, O Lord, these Thy servants to the work whereunto Thou hast called them by the voice of this people. Endue them plenteously with heavenly wisdom. Grant them Thy grace, that they may be good men, full of the Holy Ghost and of faith, ruling in the fear of God. Give them favour and influence with the people. Make them faithful unto death, and when the Chief Shepherd shall appear, may they receive a crown of glory that fadeth not away. Amen.
+SET apart, we pray, O Lord, these Your servants to the work to which You have called them by the voice of this people. Endue them plenteously with heavenly wisdom. Grant them Your grace, that they may be good men, full of the Holy Spirit and of faith, ruling in the fear of God. Give them favor and influence with the people. Make them faithful unto death, and when the Chief Shepherd shall appear, may they receive a crown of glory that fadeth not away. Amen.
 
 ¶ *Then the Minister shall say,*
 
@@ -1698,7 +1698,7 @@ IN the Name of the Lord Jesus Christ, and by the authority committed to me in Hi
 
 I now charge you, in the Name of the Lord Jesus, to be faithful in this your office.
 
-I also charge you, Christian people, to be faithful to these Elders whom you have chosen to rule over you in the Lord; and that you render them all due obedience, co-operation and support, and follow them so far as ye see them follow Christ.
+I also charge you, Christian people, to be faithful to these Elders whom you have chosen to rule over you in the Lord; and that you render them all due obedience, co-operation and support, and follow them so far as you see them follow Christ.
 
 ¶ *Where there is an existing Session, it is proper that the Members of that body should here take the newly ordained Elders by the hand, saying in words to this purpose:*
 
@@ -1708,7 +1708,7 @@ WE give you the right hand of fellowship, to take part of this Office with us.
 
 ¶ *Then the Minister shall say,*
 
-MAY the great Head of the Church so enrich us with His heavenly grace, that at the last we shall hear Him saying unto us: Well done, good and faithful servant; enter thou into the joy of thy Lord.
+MAY the great Head of the Church so enrich us with His heavenly grace, that at the last we shall hear Him saying to us: Well done, good and faithful servant; enter thou into the joy of thy Lord.
 
 ## The Order for the Installation of Ruling Elders who have been Previously Ordained
 
@@ -1716,17 +1716,17 @@ MAY the great Head of the Church so enrich us with His heavenly grace, that at t
 
 ¶ *When Elders are to be newly ordained at the same Service with the installation of those who have been previously ordained, the following Order may be introduced in The Order for the Ordination of Ruling Elders, immediately before the Benediction.*
 
-BELOVED Brethren: Having already been solemnly ordained to the office of Ruling Elder, you do now present yourselves in response to the voice of this congregation, to be installed again for the discharge of the active duties of your office.
+BELOVED Brethren: Having already been solemnly ordained to the office of Ruling Elder, you now present yourselves in response to the voice of this congregation, to be installed again for the discharge of the active duties of your office.
 
 You will therefore now give answer to the following Questions:
 
-Do you accept the office of Ruling Elder in this congregation, and promise faithfully to perform all the duties thereof?
+Do you accept the office of Ruling Elder in this congregation, and promise faithfully to perform all its duties?
 
 Do you promise to study the peace, unity, and purity of the Church?
 
 ¶ *The Elders-elect having answered these Questions in the affirmative, the Minister shall address to the Members of the church the following Question:*
 
-DO you, the Members of this church, acknowledge and receive these Brethren as Ruling Elders, and do you promise to yield them all that honour, encouragement, and obedience in the Lord, to which their office, according to the Word of God, and the constitution of the Church, entitles them?
+DO you, the Members of this church, acknowledge and receive these Brethren as Ruling Elders, and do you promise to yield them all that honor, encouragement, and obedience in the Lord, to which their office, according to the Word of God, and the constitution of the Church, entitles them?
 
 ¶ *The Members of the church shall answer in the affirmative by holding up their right hands.*
 
@@ -1736,23 +1736,23 @@ I HEREBY declare you to be invested with the Office of Ruling Elder in this cong
 
 ¶ *Then the Minister shall say,*
 
-MAY the great Head of the Church so enrich us with His heavenly grace, that at the last we shall hear Him saying unto us: Well done, good and faithful servant; enter thou into the joy of thy Lord.
+MAY the great Head of the Church so enrich us with His heavenly grace, that at the last we shall hear Him saying to us: Well done, good and faithful servant; enter thou into the joy of thy Lord.
 
 ## The Order for the Ordination of Deacons
 
-¶ *Deacons are distinct officers in the Church, whose business it is to take care of the poor, and to distribute among them the collections raised for their use. To them also may be properly committed the management of the temporal affairs of the church (Form of Government, Chap. vi). When any person shall have been elected to the office of Deacon, and shall have declared his willingness to accept thereof, he shall be set apart to his office in the manner prescribed by the Form of Government (Chap. xiii).*
+¶ *Deacons are distinct officers in the Church, whose business it is to take care of the poor, and to distribute among them the collections raised for their use. To them also may be properly committed the management of the temporal affairs of the church (Form of Government, Chap. vi). When any person shall have been elected to the office of Deacon, and shall have declared his willingness to accept it, he shall be set apart to his office in the manner prescribed by the Form of Government (Chap. xiii).*
 
 ¶ *Divine Service having been celebrated according to the usual Order, the Persons to be ordained shall, after the Sermon, present themselves before the pulpit at the call of the Minister, who shall thus address the congregation:*
 
 DEARLY Beloved: Concerning the institution of the office of Deacon we read in the sixth chapter of the Book of the Acts, that in the beginning the Apostles themselves ministered to the poor; but afterwards, being overburdened with these ministrations, they advised that certain men be chosen by the Church, to whom the service of the poor was committed as their peculiar care; therefore this Church has recognized the work and office of these men, to whom in the New Testament is given the title of Deacons, as of Apostolic institution, and needful for the welfare of the whole Body of Christ, to the end that the Ministers might continually give themselves to prayer and to the ministry of the Word.
 
-Of this office St. Paul requires that the Deacons must be grave, not double-tongued, not given to much wine, not greedy of filthy lucre, holding the mystery of the faith in a pure conscience; ruling their children and their own houses well. And of them that have used this office well he declares that they purchase to themselves a good degree, and great boldness in the faith, which is in Christ Jesus.
+Of this office St. Paul requires that the Deacons must be grave, not double-tongued, not given to much wine, not greedy of filthy lucre, holding the mystery of the faith in a pure conscience; ruling their children and their own houses well. And of those who have used this office well he declares that they purchase to themselves a good degree, and great boldness in the faith, which is in Christ Jesus.
 
 These brethren here present (here the Minister shall mention the names of the Persons chosen) having been chosen, in the mode most approved and in use in this congregation, to the office of Deacon, and having signified their willingness to serve, we do therefore, in the Name of the Lord Jesus Christ, now proceed to their ordination.
 
 ¶ *Then the Minister addressing the Deacons-elect shall say,*
 
-FORASMUCH as you have declared your willingness to take this office upon you, I now require you to answer the following Questions, appointed by the Church to be put to those who are to be ordained as Deacons.
+SINCE you have declared your willingness to take this office upon you, I now require you to answer the following Questions, appointed by the Church to be put to those who are to be ordained as Deacons.
 
 Do you believe the Scriptures of the Old and New Testaments to be the Word of God, the only infallible rule of faith and practice?
 
@@ -1760,19 +1760,19 @@ Do you sincerely receive and adopt the Confession of Faith of this Church, as co
 
 Do you approve of the government and discipline of the Presbyterian Church in these United States?
 
-Do you accept the office of Deacon in this congregation, and promise faithfully to perform all the duties thereof?
+Do you accept the office of Deacon in this congregation, and promise faithfully to perform all its duties?
 
 Do you promise to study the peace, unity, and purity of the Church?
 
 ¶ *The Deacons-elect having answered these Questions in the affirmative, the Minister shall address to the Members of the church the following Question:*
 
-DO you, the Members of this church, acknowledge and receive these brethren as Deacons, and do you promise to yield them all that honour, encouragement, and obedience in the Lord, to which their office, according to the Word of God, and the constitution of this Church, entitles them?
+DO you, the Members of this church, acknowledge and receive these brethren as Deacons, and do you promise to yield them all that honor, encouragement, and obedience in the Lord, to which their office, according to the Word of God, and the constitution of this Church, entitles them?
 
 ¶ *The Members of the church having answered this Question in the affirmative, by holding up their right hands, the Minister shall proceed to set apart the Candidates to their office, by Prayer, (and if desired, the Laying on of Hands,) the Deacons-elect devoutly kneeling.*
 
 Let us pray.
 
-O LORD JESUS, who, being rich, for our sakes became poor, that we through Thy poverty might be rich; Set apart and consecrate these Thy servants to the office of Deacon. Give them Thine own spirit of sympathy with all human sorrow and distress, and of holy, self-denying service in behalf of those who are in want and suffering. Guide and sustain them in their ministry of love until their work on earth is done; and bestow upon them the great rewards of Thy heavenly kingdom. Amen.
+O LORD JESUS, who, being rich, for our sakes became poor, that we through Your poverty might be rich; Set apart and consecrate these Your servants to the office of Deacon. Give them Your own spirit of sympathy with all human sorrow and distress, and of holy, self-denying service in behalf of those who are in want and suffering. Guide and sustain them in their ministry of love until their work on earth is done; and bestow upon them the great rewards of Your heavenly kingdom. Amen.
 
 ¶ *Then the Minister shall say,*
 
@@ -1836,13 +1836,13 @@ Glory be to the Father, and to the Son: and to the Holy Ghost;
 
 As it was in the beginning, is now, and ever shall be: world without end. Amen.
 
-¶ *Then shall the Minister say,*
+¶ *Then the Minister shall say,*
 
 Let us pray.
 
-DIRECT us, O Lord, in all our doings, with Thy most gracious favour, and further us with Thy continual help; that in all our works begun, continued, and ended in Thee, we may glorify Thy holy Name, and finally, by Thy mercy, obtain everlasting life; through Jesus Christ our Lord. Amen.
+DIRECT us, O Lord, in all our doings, with Your most gracious favor, and further us with Your continual help; that in all our works begun, continued, and ended in You, we may glorify Your holy Name, and finally, by Your mercy, obtain everlasting life; through Jesus Christ our Lord. Amen.
 
-¶ *Then shall an appropriate Hymn be sung, all standing; after which, all, still standing, shall join with the Minister in their Confession of Faith.*
+¶ *Then an appropriate Hymn shall be sung, all standing; after which, all, still standing, shall join with the Minister in their Confession of Faith.*
 
 ### The Creed
 
@@ -1854,27 +1854,27 @@ I believe in the Holy Ghost; The Holy Catholic Church; The Communion of Saints; 
 
 [^creed4]: Or, *He continued in the state of the dead, and under the power of death, until the third day.*
 
-¶ *Here shall follow the Laying of the Stone. After such documents and other articles as are to be preserved have been deposited in the cavity prepared for them, the Minister, or other Person appointed for the purpose, assisted by the builder, shall lay the Stone in its place. Then the Minister, placing his hand on it, shall say:*
+¶ *Here the Laying of the Stone shall follow. After such documents and other articles as are to be preserved have been deposited in the cavity prepared for them, the Minister, or other Person appointed for the purpose, assisted by the builder, shall lay the Stone in its place. Then the Minister, placing his hand on it, shall say:*
 
-IN the Name of the Father, and of the Son, and of the Holy Ghost, we lay this Corner-Stone of a house to be erected here under the name of —— Church, and devoted to the worship of Almighty God.
+IN the Name of the Father, and of the Son, and of the Holy Spirit, we lay this Corner-Stone of a house to be erected here under the name of —— Church, and devoted to the worship of Almighty God.
 
 Behold, I lay in Zion a chief corner-stone, elect, precious: and he that believeth on Him shall not be confounded.
 
 Other foundation can no man lay than that is laid: which is Jesus Christ.
 
-¶ *Then shall he say,*
+¶ *Then he shall say,*
 
 Let us pray.
 
-LORD God, who art the Beginning and the End, by whom all things were created; Grant us the fulness of Thy mercy, and establish Thou this Stone which we plant in Thy Name.
+LORD God, who are the Beginning and the End, by whom all things were created; Grant us the fullness of Your mercy, and establish this Stone which we plant in Your Name.
 
-Accept, we beseech Thee, the humble service of all who contribute of their substance unto this building; let Thy blessing rest upon them, and also upon those who labour in erecting it, to shield them from all accidents and dangers; and grant unto them, and all of us here present, Thy heavenly grace, that our gifts and all our service may be sanctified, and we may become in soul and body living temples of the Holy Ghost. All which we ask through the abundant merits of our Lord and Saviour, who liveth and reigneth with Thee and the Holy Ghost, ever one God, world without end. Amen.
+Accept, we pray, the humble service of all who contribute of their substance to this building; let Your blessing rest upon them, and also upon those who labor in erecting it, to shield them from all accidents and dangers; and grant to them, and all of us here present, Your heavenly grace, that our gifts and all our service may be sanctified, and we may become in soul and body living temples of the Holy Spirit. All which we ask through the abundant merits of our Lord and Savior, who lives and reigns with You and the Holy Spirit, ever one God, world without end. Amen.
 
 OUR Father which art in heaven, Hallowed be Thy Name. Thy kingdom come. Thy will be done in earth, As it is in heaven. Give us this day our daily bread. And forgive us our debts, As we forgive our debtors. And lead us not into temptation, But deliver us from evil: For Thine is the kingdom, and the power, and the glory, forever. Amen.
 
 ¶ *Here may be given an Address. After which, if so approved, an Offering in aid of the building fund may be made.*
 
-¶ *Then shall be sung a suitable Hymn, and the Minister shall pronounce*
+¶ *Then a suitable Hymn shall be sung, and the Minister shall pronounce*
 
 ### The Benediction
 
@@ -1914,7 +1914,7 @@ Glory be to the Father, and to the Son: and to the Holy Ghost;
 
 As it was in the beginning, is now, and ever shall be: world without end. Amen.
 
-¶ *Then shall be sung the following or some other suitable Hymn:*
+¶ *Then the following or some other suitable Hymn shall be sung:*
 
 ALL people that on earth do dwell, \
 Sing to the Lord with cheerful voice; \
@@ -1936,7 +1936,7 @@ His mercy is for ever sure; \
 His truth at all times firmly stood, \
 And shall from age to age endure. Amen.
 
-¶ *Then shall the Minister and People make their Confession of Faith, saying:*
+¶ *Then the Minister and People shall make their Confession of Faith, saying:*
 
 I BELIEVE in God the Father Almighty, Maker of heaven and earth:
 
@@ -1948,15 +1948,15 @@ I believe in the Holy Ghost; The Holy Catholic Church; The Communion of Saints; 
 
 ¶ *The People being seated, the presiding Minister shall say,*
 
-DEARLY beloved in the Lord: God our Heavenly Father, having in His grace, which is in Jesus Christ our Lord, brought to its consummation, our work of preparing for the honour of His holy Name, a house within whose walls His Gospel is to be truly preached, His Sacraments are to be faithfully administered, and prayer and praise are to be offered unto Him, we are now gathered in His Presence for the purpose of devoting this house, by a solemn act of worship, to its proper and sacred use. Let us therefore seek His blessing on this Service.
+DEARLY beloved in the Lord: God our Heavenly Father, having in His grace, which is in Jesus Christ our Lord, brought to its consummation, our work of preparing for the honor of His holy Name, a house within whose walls His Gospel is to be truly preached, His Sacraments are to be faithfully administered, and prayer and praise are to be offered to Him, we are now gathered in His Presence for the purpose of devoting this house, by a solemn act of worship, to its proper and sacred use. Let us therefore seek His blessing on this Service.
 
-¶ *Then shall the Minister say,*
+¶ *Then the Minister shall say,*
 
 Let us pray.
 
 ¶ *If so desired, the Prayer may be in the form following.*
 
-O LORD God, almighty and most merciful, whom the heaven, even the heaven of heavens cannot contain, much less temples built with hands, but who also dwellest with men, and delightest Thyself in the assemblage of Thy people; Cleanse our hearts, we beseech Thee, from all evil thought and desire, and vouchsafe Thy divine Presence and blessing, that both those things may please Thee which we do at this present, and also that we may at length obtain Thy favour with life everlasting in Thy heavenly kingdom; through Jesus Christ our Lord. Amen.
+O LORD God, almighty and most merciful, whom the heaven, even the heaven of heavens cannot contain, much less temples built with hands, but who also dwell with men, and delight Yourself in the assemblage of Your people; Cleanse our hearts, we pray, from all evil thought and desire, and grant Your divine Presence and blessing, that both those things may please You which we do at this present time, and also that we may at length obtain Your favor with life everlasting in Your heavenly kingdom; through Jesus Christ our Lord. Amen.
 
 ¶ *Here let the Minister and the People say together the Lord's Prayer:*
 
@@ -1964,29 +1964,29 @@ OUR Father which art in heaven, Hallowed be Thy Name. Thy kingdom come. Thy will
 
 ¶ *The Scripture shall then be read. Proper lessons are: from the Old Testament, 1 Kings viii. 22-53, and from the New Testament, 1 Corinthians iii., Ephesians ii., or Revelation xxi.*
 
-¶ *Then shall the Minister speak these Words of Dedication, the People standing, and joining in the words printed in Capitals.*
+¶ *Then the Minister shall speak these Words of Dedication, the People standing, and joining in the words printed in Capitals.*
 
 HOLY, Blessed, and Glorious Trinity: three Persons and one God:
 
-TO THEE WE DEDICATE THIS HOUSE.
+TO YOU WE DEDICATE THIS HOUSE.
 
 Father of our Lord Jesus Christ: Our Father which art in heaven:
 
-TO THEE WE DEDICATE THIS HOUSE.
+TO YOU WE DEDICATE THIS HOUSE.
 
-Son of God, the Only Begotten of the Father, Head of the Body, which is the Church: Head over all things to the Church; Prophet, Priest, and King of Thy people:
+Son of God, the Only Begotten of the Father, Head of the Body, which is the Church: Head over all things to the Church; Prophet, Priest, and King of Your people:
 
-TO THEE WE DEDICATE THIS HOUSE.
+TO YOU WE DEDICATE THIS HOUSE.
 
-God the Holy Ghost, proceeding from the Father and the Son: given to be our abiding Teacher, Sanctifier, and Comforter; Lord and Giver of Life:
+God the Holy Spirit, proceeding from the Father and the Son: given to be our abiding Teacher, Sanctifier, and Comforter; Lord and Giver of Life:
 
-TO THEE WE DEDICATE THIS HOUSE.
+TO YOU WE DEDICATE THIS HOUSE.
 
-¶ *Then shall the Minister say,*
+¶ *Then the Minister shall say,*
 
 ARISE, O Lord, into Thy rest, Thou and the ark of Thy strength. Let Thy priests be clothed with righteousness, and let Thy people shout for joy. Put Thy Name in this place. Let Thine eyes be opened toward it; and hearken unto the supplications of Thy people when they pray in this place, and hear Thou in heaven Thy dwelling place, and when thou hearest, forgive. Amen.
 
-¶ *Then shall the appointed Minister say,*
+¶ *Then the appointed Minister shall say,*
 
 Let us pray.
 
@@ -1994,19 +1994,19 @@ Let us pray.
 
 ### The Prayer of Consecration
 
-O ALMIGHTY and everlasting God, Thou dwellest not in temples made with hands, neither art Thou worshipped with men's hands, as though Thou neededst anything, seeing that Thou givest to all life and breath and all things; when we bring Thee our best, we serve Thee only with what is Thine own; and when we have done all, we are but unprofitable servants. Yet do Thou, O Lord, who delightest Thyself in the praises of the Sanctuary, accept the offering of this house which Thy people have builded to the glory of Thy holy Name. We consecrate it to Thee, the Father, the Son, and the Holy Ghost, to be henceforth the House of God, and a gate of heaven; we set it apart from all common and worldly uses, for a temple and a sanctuary, where Thy holy Gospel shall be preached; where the prayers of the Church shall be made unto Thee without ceasing; where Thy high praises shall be devoutly sung; where the ordinances of Thy Word shall be duly administered; to which Thy people shall throng with cheerful steps. How amiable are Thy tabernacles, O Lord of Hosts! I was glad when they said unto me, let us go into the House of the Lord.
+O ALMIGHTY and everlasting God, You do not dwell in temples made with hands, nor are You worshipped with men's hands, as though You needed anything, seeing that You give to all life and breath and all things; when we bring You our best, we serve You only with what is Your own; and when we have done all, we are but unprofitable servants. Yet, O Lord, who delight Yourself in the praises of the Sanctuary, accept the offering of this house which Your people have built to the glory of Your holy Name. We consecrate it to You, the Father, the Son, and the Holy Spirit, to be from now on the House of God, and a gate of heaven; we set it apart from all common and worldly uses, for a temple and a sanctuary, where Your holy Gospel shall be preached; where the prayers of the Church shall be made to You without ceasing; where Your high praises shall be devoutly sung; where the ordinances of Your Word shall be duly administered; to which Your people shall throng with cheerful steps. How amiable are Thy tabernacles, O Lord of Hosts! I was glad when they said unto me, Let us go into the House of the Lord.
 
-When Thy holy Word is preached in this place may it be spoken in the demonstration of the Spirit and with power; speak Thou comfortably to Thy people, O Lord, through the lips of Thine ambassadors, and let Thy Word be as the fire, and as the hammer to hardened hearts. When Thy holy Sacraments are here administered, may those spiritual graces which the outward signs do represent and signify, flow into the hearts of Thy servants; so that receiving the seal of Baptism, they shall indeed receive the renewing of the Holy Ghost; and partaking of the Lord's Table, they shall indeed feed by faith on the Body and Blood of Christ. Here let God be worshipped in spirit and in truth, and let not our Father's house be made a place of merchandise. Here when Thy people come to offer their gifts upon Thine altar, let them consider Him, who though He was rich for our sakes became poor, that we through His poverty might be made rich. Let the glory of the Lord fill this house, and the Spirit of God descend and dwell in His Church. Amen.
+When Your holy Word is preached in this place may it be spoken in the demonstration of the Spirit and with power; speak comfortably to Your people, O Lord, through the lips of Your ambassadors, and let Your Word be as the fire, and as the hammer to hardened hearts. When Your holy Sacraments are administered here, may those spiritual graces which the outward signs represent and signify, flow into the hearts of Your servants; so that receiving the seal of Baptism, they shall indeed receive the renewing of the Holy Spirit; and partaking of the Lord's Table, they shall indeed feed by faith on the Body and Blood of Christ. Here let God be worshipped in spirit and in truth, and let not our Father's house be made a place of merchandise. Here when Your people come to offer their gifts upon Your altar, let them consider Him, who though He was rich for our sakes became poor, that we through His poverty might be made rich. Let the glory of the Lord fill this house, and the Spirit of God descend and dwell in His Church. Amen.
 
-ALMIGHTY and everlasting God, who hast declared Thy love for the world by giving Thine only begotten Son, that whosoever believeth in Him should not perish but have everlasting life; Vouchsafe to Thy Church gifts of spiritual power, to the hastening in all the world of Thy Kingdom which is righteousness and peace and joy in the Holy Ghost.
+ALMIGHTY and everlasting God, who have declared Your love for the world by giving Your only begotten Son, that whosoever believeth in Him should not perish but have everlasting life; Grant to Your Church gifts of spiritual power, to the hastening in all the world of Your Kingdom which is righteousness and peace and joy in the Holy Spirit.
 
 Now unto the King eternal, immortal, invisible, the only wise God, be honour and glory for ever and ever. Amen.
 
-¶ *If it be the will of the congregation to make an Offering, it may be received here, and consecrated with Prayer.*
+¶ *If it is the will of the congregation to make an Offering, it may be received here, and consecrated with Prayer.*
 
 ¶ *Then a Hymn shall be sung.*
 
-¶ *Then shall follow*
+¶ *Then follows*
 
 ### The Sermon
 
@@ -2018,11 +2018,11 @@ Let us pray.
 
 ¶ *If so desired, the Prayer may be offered in the form following:*
 
-MOST glorious God; Accept through Thy beloved Son, our thanksgivings for Thine unspeakable love and goodness. Thou art the Father of mercies, and God of all consolation, full of compassion, forgiving iniquity, transgression, and sin. We thank Thee that Thou hast founded Thy Church upon the Apostles and Prophets, Jesus Christ Himself being the chief Corner Stone. We thank Thee that Thou hast committed to Thy ministers the Word of reconciliation. Continue Thy loving-kindness unto us, that we may rejoice and be glad in Thee all our days. Guide us by Thy counsel, and afterward receive us to Thy glory; where, with all the blessed host of heaven, we may behold, adore, and perfectly and joyfully praise Thee, our most glorious Creator, Redeemer, and Sanctifier, for ever and ever. Amen.
+MOST glorious God; Accept through Your beloved Son, our thanksgivings for Your unspeakable love and goodness. You are the Father of mercies, and God of all consolation, full of compassion, forgiving iniquity, transgression, and sin. We thank You that You have founded Your Church upon the Apostles and Prophets, Jesus Christ Himself being the chief Corner Stone. We thank You that You have committed to Your ministers the Word of reconciliation. Continue Your loving-kindness to us, that we may rejoice and be glad in You all our days. Guide us by Your counsel, and afterward receive us to Your glory; where, with all the blessed host of heaven, we may behold, adore, and perfectly and joyfully praise You, our most glorious Creator, Redeemer, and Sanctifier, for ever and ever. Amen.
 
 ¶ *Or this:*
 
-O GOD, whose glory is great in all Thy churches, and the praises of whose Name resound in the assemblies of Thy saints; We, Thy servants, would humble ourselves before Thee, and worship Thine infinite Majesty. We celebrate Thy wisdom, power, and goodness, that shine forth in the works of creation and redemption through Jesus Christ our Lord. We bless Thee for all temporal and spiritual good that we continually receive at Thy bountiful hands. But more especially, with all Thy people assembled this day, we praise Thee that Thou didst send into the world Thy Son to save us; and having delivered Him up for our offenses, didst raise Him again for our justification; and through His glorious resurrection hast given us the blessed hope of everlasting life. O Lord, may these our thanksgivings come up with acceptance before Thy throne. Make us worthy to have part in the resurrection of the just, and the glory of Thine eternal kingdom: whither Jesus the Forerunner hath for us entered, where now He lives and reigns, and is worshipped and glorified; with Thee and the Holy Ghost, One God, blessed for evermore. Amen.
+O GOD, whose glory is great in all Your churches, and the praises of whose Name resound in the assemblies of Your saints; We, Your servants, would humble ourselves before You, and worship Your infinite Majesty. We celebrate Your wisdom, power, and goodness, that shine forth in the works of creation and redemption through Jesus Christ our Lord. We bless You for all temporal and spiritual good that we continually receive at Your bountiful hands. But more especially, with all Your people assembled this day, we praise You that You sent into the world Your Son to save us; and having delivered Him up for our offenses, raised Him again for our justification; and through His glorious resurrection have given us the blessed hope of everlasting life. O Lord, may these our thanksgivings come up with acceptance before Your throne. Make us worthy to have part in the resurrection of the just, and the glory of Your eternal kingdom: whither Jesus the Forerunner has for us entered, where now He lives and reigns, and is worshipped and glorified; with You and the Holy Spirit, One God, blessed for evermore. Amen.
 
 ¶ *The People remaining in the posture of prayer, the Minister shall pronounce*
 
@@ -2032,7 +2032,7 @@ THE grace of the Lord Jesus Christ, and the love of God, and the communion of th
 
 ## The Treasury of Prayers
 
-¶ *These Prayers may be used, if the Minister so desires, in connection with the Morning Service, and the Evening Service. They are also commended to Christians, at other times, for guidance and help in their devotions; being gathered and compiled from the Holy Scriptures, from the records of the early Church, and from the fathers of the Reformed Faith, with such additions as have been made in our own time by those who have prayed and laboured in the same Spirit.*
+¶ *These Prayers may be used, if the Minister so desires, in connection with the Morning Service, and the Evening Service. They are also commended to Christians, at other times, for guidance and help in their devotions; being gathered and compiled from the Holy Scriptures, from the records of the early Church, and from the fathers of the Reformed Faith, with such additions as have been made in our own time by those who have prayed and labored in the same Spirit.*
 
 **I. General Prayers for Common Worship**
 
@@ -2116,481 +2116,481 @@ THE grace of the Lord Jesus Christ, and the love of God, and the communion of th
 
 **I.**
 
-ETERNAL and ever-blessed God, we bow down before Thy divine majesty, adoring Thee, the Lord of heaven and earth, of whom and through whom and to whom are all things; unto whom be glory for ever and ever. Amen.
+ETERNAL and ever-blessed God, we bow down before Your divine majesty, adoring You, the Lord of heaven and earth, of whom and through whom and to whom are all things; to whom be glory for ever and ever. Amen.
 
 **II.**
 
-LORD God eternal; sovereign and immutable; holy, just, and merciful; Maker of all things by Thy power; Ruler of all things in Thy wisdom; We adore Thee for the wonders of the heavens and the earth; for the goodness of Thy dealings and the perfection of Thy secret counsels; for Thy saving love revealed in Jesus Christ, and Thy living presence made known by the Holy Spirit. By day and night, with voice and heart, praise and adoration shall be given unto Thee, O Lord most mighty and most merciful, from generation unto generation, for ever and ever. Amen.
+LORD God eternal; sovereign and immutable; holy, just, and merciful; Maker of all things by Your power; Ruler of all things in Your wisdom; We adore You for the wonders of the heavens and the earth; for the goodness of Your dealings and the perfection of Your secret counsels; for Your saving love revealed in Jesus Christ, and Your living presence made known by the Holy Spirit. By day and night, with voice and heart, praise and adoration shall be given to You, O Lord most mighty and most merciful, from generation to generation, for ever and ever. Amen.
 
 **III.**
 
-HOLY, Holy, Holy! Lord God almighty; There is none like unto Thee, who hast set Thy glory above the heavens. Praise waiteth for Thee in Zion, and unto Thee shall the vow be performed. Hearken to the adoration of Thy people, we beseech Thee, and let the words of our mouths and the meditations of our hearts be acceptable in Thy sight, O Lord our Strength and our Redeemer. Amen.
+HOLY, Holy, Holy! Lord God almighty; There is none like You, who have set Your glory above the heavens. Praise waits for You in Zion, and to You shall the vow be performed. Hear the adoration of Your people, we pray, and let the words of our mouths and the meditations of our hearts be acceptable in Your sight, O Lord our Strength and our Redeemer. Amen.
 
 **IV.**
 
-O GOD, whose being and perfections are infinite, eternal, and unchangeable, the same yesterday, to-day, and for ever: Thou art glorious in holiness, full of love and compassion, abundant in grace and truth. All Thy works praise Thee in all places of Thy dominion: and Thy Son hath glorified Thee upon earth. Therefore we bow down and adore Thee, Father, Son, and Holy Ghost, one God, blessed for evermore. Amen.
+O GOD, whose being and perfections are infinite, eternal, and unchangeable, the same yesterday, today, and for ever: You are glorious in holiness, full of love and compassion, abundant in grace and truth. All Your works praise You in all places of Your dominion: and Your Son has glorified You upon earth. Therefore we bow down and adore You, Father, Son, and Holy Spirit, one God, blessed for evermore. Amen.
 
 **V.**
 
-O LORD, Thou art our God: we will exalt Thee, we will praise Thy Name: for Thou hast done wonderful things. By the stars of heaven Thou hast spoken: and in the heart of man Thy voice is heard. Through Thy Word Thou hast given light; and in Thy Son the brightness of Thy glory is revealed. Lift up our hearts unto Thee, O God, and receive our adoration; through Jesus Christ. Amen.
+O LORD, You are our God: we will exalt You, we will praise Your Name: for You have done wonderful things. By the stars of heaven You have spoken: and in the heart of man Your voice is heard. Through Your Word You have given light; and in Your Son the brightness of Your glory is revealed. Lift up our hearts to You, O God, and receive our adoration; through Jesus Christ. Amen.
 
 #### Thanksgivings
 
 **I.**
 
-ALMIGHTY God, Father of all mercies, we, Thine unworthy servants, do give Thee most humble and hearty thanks for all Thy goodness and loving-kindness to us, and to all men. We bless Thee for our creation, preservation, and all the blessings of this life; but above all, for Thine inestimable love in the redemption of the world by our Lord Jesus Christ; for the means of grace, and for the hope of glory. And, we beseech Thee, give us that due sense of all Thy mercies, that our hearts may be unfeignedly thankful, and that we show forth Thy praise, not only with our lips, but in our lives; by giving up ourselves to Thy service, and by walking before Thee in holiness and righteousness all our days; through Jesus Christ our Lord, to whom, with Thee and the Holy Ghost, be all honour and glory, world without end. Amen.
+ALMIGHTY God, Father of all mercies, we, Your unworthy servants, give You most humble and hearty thanks for all Your goodness and loving-kindness to us, and to all men. We bless You for our creation, preservation, and all the blessings of this life; but above all, for Your inestimable love in the redemption of the world by our Lord Jesus Christ; for the means of grace, and for the hope of glory. And, we pray, give us that due sense of all Your mercies, that our hearts may be unfeignedly thankful, and that we show forth Your praise, not only with our lips, but in our lives; by giving up ourselves to Your service, and by walking before You in holiness and righteousness all our days; through Jesus Christ our Lord, to whom, with You and the Holy Spirit, be all honor and glory, world without end. Amen.
 
 **II.**
 
-O GOD, by whose hand all living things were made, and by whose blessing they are nourished and sustained; We give Thee hearty thanks for all the bounties of Thy providence, wherewith Thou hast enriched our life; and we humbly pray that, enjoying Thy gifts in contentment, we may be enabled by Thy grace to use them to Thy praise. Especially we thank Thee for Thy great love in sending Thy Son to be the Saviour of the world, and in calling us out of our sins into fellowship with Him: and we beseech Thee to grant us always Thy Holy Spirit, through whom we may grow continually in thankfulness toward Thee, as also into the likeness of Thy Son Jesus Christ our Lord. Amen.
+O GOD, by whose hand all living things were made, and by whose blessing they are nourished and sustained; We give You hearty thanks for all the bounties of Your providence, with which You have enriched our life; and we humbly pray that, enjoying Your gifts in contentment, we may be enabled by Your grace to use them to Your praise. Especially we thank You for Your great love in sending Your Son to be the Savior of the world, and in calling us out of our sins into fellowship with Him: and we ask You to grant us always Your Holy Spirit, through whom we may grow continually in thankfulness toward You, as also into the likeness of Your Son Jesus Christ our Lord. Amen.
 
 **III.**
 
-ALMIGHTY and most merciful Father, from whom cometh every good and perfect gift; We give Thee praise and hearty thanks for all Thy mercies:
+ALMIGHTY and most merciful Father, from whom comes every good and perfect gift; We give You praise and hearty thanks for all Your mercies:
 
-For Thy goodness that hath created us; Thy bounty that hath sustained us; Thy fatherly discipline that hath chastened and corrected us; Thy patience that hath borne with us; Thy love that hath redeemed us. [*Here any special mercy may be named.*]
+For Your goodness that has created us; Your bounty that has sustained us; Your fatherly discipline that has chastened and corrected us; Your patience that has borne with us; Your love that has redeemed us. [*Here any special mercy may be named.*]
 
-Grant unto us with Thy gifts a heart to love Thee, and enable us to show our thankfulness for all Thy benefits by giving up ourselves to Thy service, and cheerfully submitting in all things to Thy blessed will; through Jesus Christ our Lord. Amen.
+Grant to us with Your gifts a heart to love You, and enable us to show our thankfulness for all Your benefits by giving up ourselves to Your service, and cheerfully submitting in all things to Your blessed will; through Jesus Christ our Lord. Amen.
 
 **IV.**
 
-MOST heartily do we thank Thee, O Lord, for all Thy mercies of every kind, and for Thy loving care over all Thy creatures. We bless Thee for the gift of life, for Thy protection round about us, for Thy guiding hand upon us, and for the many tokens of Thy love within us; especially for the saving knowledge of Thy dear Son, our Redeemer; and for the living presence of Thy Spirit, our Comforter. We thank Thee for friendship and duty, for good hopes and precious memories, for the joys that cheer us and for the trials that teach us to trust in Thee. In all these things, our heavenly Father, make us wise unto a right use of Thy great benefits; and so direct us that in word and deed we may render an acceptable thanksgiving unto Thee, in Jesus Christ our Saviour. Amen.
+MOST heartily do we thank You, O Lord, for all Your mercies of every kind, and for Your loving care over all Your creatures. We bless You for the gift of life, for Your protection round about us, for Your guiding hand upon us, and for the many tokens of Your love within us; especially for the saving knowledge of Your dear Son, our Redeemer; and for the living presence of Your Spirit, our Comforter. We thank You for friendship and duty, for good hopes and precious memories, for the joys that cheer us and for the trials that teach us to trust in You. In all these things, our heavenly Father, make us wise to a right use of Your great benefits; and so direct us that in word and deed we may render an acceptable thanksgiving to You, in Jesus Christ our Savior. Amen.
 
 **V.**
 
-MOST gracious God, the Fountain of all blessing; Thou hast opened Thy hand to fill us with all good things: Thou dost govern us as a King, Thou feedest us like a shepherd, Thou keepest us beneath the shadow of Thy wings in safety, Thou providest for us as a father, Thou lovest us as a friend and thinkest on us perpetually, and art exceeding merciful to all that fear Thee; and unto Thee, O Lord, we ascribe the praise and honour of our redemption:
+MOST gracious God, the Fountain of all blessing; You have opened Your hand to fill us with all good things: You govern us as a King, You feed us like a shepherd, You keep us beneath the shadow of Your wings in safety, You provide for us as a father, You love us as a friend and think on us perpetually, and are exceedingly merciful to all who fear You; and to You, O Lord, we ascribe the praise and honor of our redemption:
 
-As Thou hast opened Thy hand upon us for a covering, so also enlarge our hearts with thankfulness and fill our mouths with praise. And grant that what Thou hast sown in loving-kindness may spring up in duty, and let Thy grace so strengthen our purposes that we may sin no more, but walk in the paths of Thy commandments; that we, living here in the light of Thy favour, may at last enter into the glory of our Lord, and give eternal praise to Thy exalted and ever blessed Name. Amen.
+As You have opened Your hand upon us for a covering, so also enlarge our hearts with thankfulness and fill our mouths with praise. And grant that what You have sown in loving-kindness may spring up in duty, and let Your grace so strengthen our purposes that we may sin no more, but walk in the paths of Your commandments; that we, living here in the light of Your favor, may at last enter into the glory of our Lord, and give eternal praise to Your exalted and ever blessed Name. Amen.
 
 #### Supplications
 
 **I.**
 
-O GOD, most holy, wise, and powerful Preserver and Governor of all Thy creatures and all their actions; Keep us, we beseech Thee, in health of body and soundness of mind, in purity of heart and cheerfulness of spirit, in contentment with our lot and charity with our neighbour; and further all our lawful undertakings with Thy blessing. In our labour strengthen us: in our pleasure purify us: in our difficulties direct us: in our perils defend us: in our troubles comfort us: and supply all our needs according to the riches of Thy grace in Christ Jesus our Lord. Amen.
+O GOD, most holy, wise, and powerful Preserver and Governor of all Your creatures and all their actions; Keep us, we pray, in health of body and soundness of mind, in purity of heart and cheerfulness of spirit, in contentment with our lot and charity with our neighbor; and further all our lawful undertakings with Your blessing. In our labor strengthen us: in our pleasure purify us: in our difficulties direct us: in our perils defend us: in our troubles comfort us: and supply all our needs according to the riches of Your grace in Christ Jesus our Lord. Amen.
 
 **II.**
 
-PROVIDE for us, O most merciful Father, both now and in the days to come, those things which are needful for our welfare in soul and body, and guide us by Thy Word and Spirit, in the way of a willing obedience to Thee. Teach us ever to look unto Thee as our Master and Rewarder, that all our work may be done in Thy service; replenish us with Thy daily gifts, that we may not lack any good thing; and keep us ever in a humble and grateful mind, that we may live peaceably with all men, and praise Thee by well-doing, according to the commandment of our Lord Jesus Christ. Amen.
+PROVIDE for us, O most merciful Father, both now and in the days to come, those things which are needful for our welfare in soul and body, and guide us by Your Word and Spirit, in the way of a willing obedience to You. Teach us ever to look to You as our Master and Rewarder, that all our work may be done in Your service; replenish us with Your daily gifts, that we may not lack any good thing; and keep us ever in a humble and grateful mind, that we may live peaceably with all men, and praise You by well-doing, according to the commandment of our Lord Jesus Christ. Amen.
 
 **III.**
 
-O LORD, our heavenly Father, who art ever ready to give good things to them that ask Thee; Hear the supplications of Thy children, in our weakness and ignorance, and supply all our needs, in body and in soul, according to Thy knowledge of our necessities and the fulness of Thy love. Strengthen us to keep Thy commandments; deliver us from our infirmities; and uphold us with Thy free Spirit. Enable us for those duties which Thou hast laid upon us, that our work being well done, we may enjoy the fruit of our labour, in a good conscience and a contented mind. And so direct us in all our ways, that we may have the light of Thy Word upon our path, and the fellowship of Thy Spirit in our hearts, and may ever continue among the faithful followers of Thy Son Jesus Christ our Lord. Amen.
+O LORD, our heavenly Father, who are ever ready to give good things to those who ask You; Hear the supplications of Your children, in our weakness and ignorance, and supply all our needs, in body and in soul, according to Your knowledge of our necessities and the fullness of Your love. Strengthen us to keep Your commandments; deliver us from our infirmities; and uphold us with Your free Spirit. Enable us for those duties which You have laid upon us, that our work being well done, we may enjoy the fruit of our labor, in a good conscience and a contented mind. And so direct us in all our ways, that we may have the light of Your Word upon our path, and the fellowship of Your Spirit in our hearts, and may ever continue among the faithful followers of Your Son Jesus Christ our Lord. Amen.
 
 **IV.**
 
-O THOU most wise and ever-gracious Lord, the Framer of our bodies and the Father of our spirits, who hast kept our souls in life and guided our feet into Thy House of Prayer: We pray for each other, all for each, that Thou wouldest bless us outwardly in our bodies, and inwardly in our souls: grant us good success in all our labours, and bring us to Thine everlasting kingdom; through Jesus Christ our Lord. Amen.
+O MOST wise and ever-gracious Lord, the Framer of our bodies and the Father of our spirits, who have kept our souls in life and guided our feet into Your House of Prayer: We pray for each other, all for each, that You would bless us outwardly in our bodies, and inwardly in our souls: grant us good success in all our labors, and bring us to Your everlasting kingdom; through Jesus Christ our Lord. Amen.
 
 **V.**
 
-O LORD, our heavenly Father, almighty and everlasting God, who hast safely brought us to the beginning of this day; Defend us in the same with Thy mighty power, and grant that this day we fall into no sin, neither run into any kind of danger; but that all our doings, being ordered by Thy governance, may be righteous in Thy sight; through Jesus Christ our Lord. Amen.
+O LORD, our heavenly Father, almighty and everlasting God, who have safely brought us to the beginning of this day; Defend us in the same with Your mighty power, and grant that this day we fall into no sin, neither run into any kind of danger; but that all our doings, being ordered by Your governance, may be righteous in Your sight; through Jesus Christ our Lord. Amen.
 
 #### Intercessions
 
 **I.**
 
-ALMIGHTY God, who hast taught us to make intercession for all men; We pray not only for ourselves here present, but we beseech Thee also to bring all such as are yet ignorant, from the miserable captivity of error to the pure understanding of Thy heavenly truth: that we all, with one consent and unity of mind, may worship Thee, our only God and Saviour: that all Thy ministers and people may both in their life and doctrine be found faithful: and that, by them, all poor sheep which wander and go astray, may be gathered and brought home to Thy fold.
+ALMIGHTY God, who have taught us to make intercession for all men; We pray not only for ourselves here present, but we ask You also to bring all such as are yet ignorant, from the miserable captivity of error to the pure understanding of Your heavenly truth: that we all, with one consent and unity of mind, may worship You, our only God and Savior: that all Your ministers and people may both in their life and doctrine be found faithful: and that, by them, all poor sheep which wander and go astray may be gathered and brought home to Your fold.
 
-Moreover, because the reins of government are in Thy hands, we beseech Thee to direct and bless all who are in lawful authority; especially Thy servant, the President of the United States, and all others to whom the people have entrusted power, together with the whole body of the Commonwealth: let Thy fatherly favour so preserve them, and Thy Holy Spirit so govern their hearts, that religion may be purely maintained, and our land may abide in righteousness and peace.
+Moreover, because the reins of government are in Your hands, we ask You to direct and bless all who are in lawful authority; especially Your servant, the President of the United States, and all others to whom the people have entrusted power, together with the whole body of the Commonwealth: let Your fatherly favor so preserve them, and Your Holy Spirit so govern their hearts, that religion may be purely maintained, and our land may abide in righteousness and peace.
 
-Finally we beseech Thee, for all those who are called to bear any cross or tribulation; that it may please Thee to sustain them with the sweet comfort of Thy Holy Spirit, until Thou send a full deliverance out of all their troubles; so that through their patience and constancy Thy kingdom may increase and shine through all the world. And these, with all other mercies, we humbly beg of Thee, in the Name of Jesus Christ, Thy Son, our Lord. Amen.
+Finally we pray to You for all those who are called to bear any cross or tribulation; that it may please You to sustain them with the sweet comfort of Your Holy Spirit, until You send a full deliverance out of all their troubles; so that through their patience and constancy Your kingdom may increase and shine through all the world. And these, with all other mercies, we humbly ask of You, in the Name of Jesus Christ, Your Son, our Lord. Amen.
 
 **II.**
 
-O GOD, the Creator and Preserver of all mankind, we humbly beseech Thee for all sorts and conditions of men; that Thou wouldest be pleased to make Thy ways known unto them, Thy saving health unto all nations. More especially, we pray for Thy holy Church universal; that it may be so guided and governed by Thy good Spirit, that all who profess and call themselves Christians may be led into the way of truth, and hold the faith in unity of spirit, in the bond of peace, and in righteousness of life. Finally, we commend to Thy fatherly goodness all those who are any ways afflicted, or distressed, in mind, body, or estate [and especially those for whom our prayers are asked at this time]; that it may please Thee to comfort and relieve them, according to their several necessities; giving them patience under their sufferings, and a happy issue out of all their afflictions. And this we beg for Jesus Christ's sake. Amen.
+O GOD, the Creator and Preserver of all mankind, we humbly pray to You for all sorts and conditions of men; that You would be pleased to make Your ways known to them, Your saving health to all nations. More especially, we pray for Your holy Church universal; that it may be so guided and governed by Your good Spirit, that all who profess and call themselves Christians may be led into the way of truth, and hold the faith in unity of spirit, in the bond of peace, and in righteousness of life. Finally, we commend to Your fatherly goodness all those who are in any way afflicted or distressed, in mind, body, or estate [and especially those for whom our prayers are asked at this time]; that it may please You to comfort and relieve them, according to their several necessities; giving them patience under their sufferings, and a happy issue out of all their afflictions. And this we ask for Jesus Christ's sake. Amen.
 
 **III.**
 
-O GOD, who art the Hope of all the ends of the earth; Remember the whole creation, pity our race, and save the world from sin. Protect our land from whatever threatens her welfare, so that religion and virtue may flourish more and more. Give the spirit of wisdom and godly fear to Thy servant, the President of the United States, and all who are in authority over us. Give humility to the rich and grace to use their riches to Thy glory: bless the people in their callings and families, and be Thou a refuge to the poor in their distress. Make every home a shelter from temptation and a nursery of noble youth; take also the homeless beneath Thy protection. Cleanse and sanctify the Church which Thou hast loved; and reveal the Spirit of Thy Son through the life and service of Thy people. Enlighten all who are perplexed in faith, support those who are tempted, awaken those who sleep, comfort the afflicted, and encourage such as are ready to faint. Encompass with Thy favour all whose lives Thou hast bound up with our own, and, if there be any who do us wrong, remove all bitterness from our hearts while we pray for Thy blessing upon them. Give peace, O Lord, in our time, and unite all hearts in the love of Thy dear Son, Jesus Christ our Lord. Amen.
+O GOD, who are the Hope of all the ends of the earth; Remember the whole creation, pity our race, and save the world from sin. Protect our land from whatever threatens her welfare, so that religion and virtue may flourish more and more. Give the spirit of wisdom and godly fear to Your servant, the President of the United States, and all who are in authority over us. Give humility to the rich and grace to use their riches to Your glory: bless the people in their callings and families, and be a refuge to the poor in their distress. Make every home a shelter from temptation and a nursery of noble youth; take also the homeless beneath Your protection. Cleanse and sanctify the Church which You have loved; and reveal the Spirit of Your Son through the life and service of Your people. Enlighten all who are perplexed in faith, support those who are tempted, awaken those who sleep, comfort the afflicted, and encourage such as are ready to faint. Encompass with Your favor all whose lives You have bound up with our own, and, if there are any who do us wrong, remove all bitterness from our hearts while we pray for Your blessing upon them. Give peace, O Lord, in our time, and unite all hearts in the love of Your dear Son, Jesus Christ our Lord. Amen.
 
 **IV.**
 
-O GOD, who art mindful of Thy children everywhere; Reveal Thy mercy unto all men, and remember, in Thy great good-will, those for whom we now make intercession.
+O GOD, who are mindful of Your children everywhere; Reveal Your mercy to all men, and remember, in Your great good-will, those for whom we now make intercession.
 
-Remember Thy Church which Thou hast purchased of old. Peace be within her walls, and prosperity within her palaces.
+Remember Your Church which You have purchased of old. Peace be within her walls, and prosperity within her palaces.
 
-Remember Thy mercy and Thy truth toward the house of Israel; and let all the ends of the earth see the salvation of our God.
+Remember Your mercy and Your truth toward the house of Israel; and let all the ends of the earth see the salvation of our God.
 
-Remember our Nation which Thou hast established; give wisdom and power from above to Thy servants on whom Thou hast laid the burden of authority, especially the President of the United States; and bind together the whole body of the Commonwealth in the unity of brotherhood.
+Remember our Nation which You have established; give wisdom and power from above to Your servants on whom You have laid the burden of authority, especially the President of the United States; and bind together the whole body of the Commonwealth in the unity of brotherhood.
 
-Remember all the persecuted and afflicted; speak peace to troubled hearts; strengthen the weak, confirm the strong; instruct the ignorant, deliver the oppressed, relieve the needy that hath no helper; and lead us all by the waters of comfort, and in the ways of righteousness, to Thine everlasting rest; through Jesus Christ our Lord. Amen.
+Remember all the persecuted and afflicted; speak peace to troubled hearts; strengthen the weak, confirm the strong; instruct the ignorant, deliver the oppressed, relieve the needy who have no helper; and lead us all by the waters of comfort, and in the ways of righteousness, to Your everlasting rest; through Jesus Christ our Lord. Amen.
 
 **V.**
 
-ALMIGHTY God, who lovest all that Thou hast made; Show Thy mercy unto the whole world, we beseech Thee; and bless all the children of men according to their manifold necessities. Enlighten and guide the ignorant; spare the wayward and rebellious, and restrain them from their evil ways; strengthen the sons of labour for their toil, and help the sons of consolation in their ministry; deliver the captives and all folk that are brought low; and make the nations of the earth to dwell together in peace and brotherhood.
+ALMIGHTY God, who love all that You have made; Show Your mercy to the whole world, we pray; and bless all the children of men according to their manifold necessities. Enlighten and guide the ignorant; spare the wayward and rebellious, and restrain them from their evil ways; strengthen the sons of labor for their toil, and help the sons of consolation in their ministry; deliver the captives and all folk that are brought low; and make the nations of the earth dwell together in peace and brotherhood.
 
-Endue Thy servant our Chief Magistrate, the Governor of this State, and all who bear authority in our land, with wisdom and ability, and enrich the whole people with the spirit of justice and kindness, that our country may be a refuge for the oppressed and a fountain of good for all mankind.
+Endue Your servant our Chief Magistrate, the Governor of this State, and all who bear authority in our land, with wisdom and ability, and enrich the whole people with the spirit of justice and kindness, that our country may be a refuge for the oppressed and a fountain of good for all mankind.
 
-Purify and exalt Thy Church throughout the world, filling all who call upon the Lord Jesus Christ with His Spirit, and enabling them for mightier works of mercy in His Name; that the power of faith and love may be manifested in the Christian life, and the hearts of all men everywhere may be drawn to Thy dear Son, the Light of the World. And grant, O most merciful Father, for His sake, that in the branch of Thy Church wherein Thou hast joined us unto Him, we may evermore know Him truly, love Him entirely, and serve Him faithfully.
+Purify and exalt Your Church throughout the world, filling all who call upon the Lord Jesus Christ with His Spirit, and enabling them for mightier works of mercy in His Name; that the power of faith and love may be manifested in the Christian life, and the hearts of all men everywhere may be drawn to Your dear Son, the Light of the World. And grant, O most merciful Father, for His sake, that in the branch of Your Church in which You have joined us to Him, we may evermore know Him truly, love Him entirely, and serve Him faithfully.
 
-Finally we beseech Thee, O God, be very gracious unto all who stand in urgent need of Thy mercy, [especially unto those for whom our prayers are asked.] Be Thou the Strength of the weary, the Comfort of the sorrowful, the Friend of the desolate, the Light of the wandering, the Hope of the dying, and the Saviour of the lost, for Jesus' sake. Amen.
+Finally we ask You, O God, to be very gracious to all who stand in urgent need of Your mercy, [especially to those for whom our prayers are asked.] Be the Strength of the weary, the Comfort of the sorrowful, the Friend of the desolate, the Light of the wandering, the Hope of the dying, and the Savior of the lost, for Jesus' sake. Amen.
 
 #### A General Confession of Sins
 
-ALMIGHTY and most merciful Father; We have erred, and strayed from Thy ways like lost sheep. We have followed too much the devices and desires of our own hearts. We have offended against Thy holy laws. We have left undone those things which we ought to have done; And we have done those things which we ought not to have done; And there is no health in us. But Thou, O Lord, have mercy upon us, miserable offenders. Spare thou those, O God, who confess their faults. Restore Thou those who are penitent; According to Thy promises declared unto mankind in Christ Jesus our Lord. And grant, O most merciful Father, for His sake; That we may hereafter live a godly, righteous, and sober life, To the glory of Thy holy Name. Amen.
+ALMIGHTY and most merciful Father; We have erred, and strayed from Your ways like lost sheep. We have followed too much the devices and desires of our own hearts. We have offended against Your holy laws. We have left undone those things which we ought to have done; And we have done those things which we ought not to have done; And there is no health in us. But You, O Lord, have mercy upon us, miserable offenders. Spare those, O God, who confess their faults. Restore those who are penitent; According to Your promises declared to mankind in Christ Jesus our Lord. And grant, O most merciful Father, for His sake; That we may hereafter live a godly, righteous, and sober life, To the glory of Your holy Name. Amen.
 
 ### II. Prayers for Certain Times and Seasons
 
 #### New Year's Day
 
-ALMIGHTY and most merciful Father, who hast continued our life from year to year; Grant that by longer life we may become less desirous of temporal pleasures and more careful of eternal happiness. So teach us to number our days that our minds may be more withdrawn from vanity and folly, more enlightened with the knowledge of Thy will, and more invigorated with power to obey it. O Lord, calm our thoughts, direct our desires, and fortify our purposes, that we may walk with cheerful confidence in the path which Thou hast appointed for us, growing wiser and stronger in spirit as we advance in years; and so support us by Thy grace that we may live in Thy favour and die in Thy peace; for the sake of Jesus Christ our Lord. Amen.
+ALMIGHTY and most merciful Father, who have continued our life from year to year; Grant that by longer life we may become less desirous of temporal pleasures and more careful of eternal happiness. So teach us to number our days that our minds may be more withdrawn from vanity and folly, more enlightened with the knowledge of Your will, and more invigorated with power to obey it. O Lord, calm our thoughts, direct our desires, and fortify our purposes, that we may walk with cheerful confidence in the path which You have appointed for us, growing wiser and stronger in spirit as we advance in years; and so support us by Your grace that we may live in Your favor and die in Your peace; for the sake of Jesus Christ our Lord. Amen.
 
-O THOU who art from everlasting to everlasting, without beginning or end of days; Replenish us with heavenly grace, at the beginning of this year, that we may be enabled to accept all its duties, to perform all its labours, to welcome all its mercies, to meet all its trials, and to advance through all it holds in store for us, with cheerful courage and a constant mind. O Lord, suffer us not to be separated from Thee, either by joy or sorrow, or any sin or weakness of our own; but have compassion upon us, and forgive us, and keep us in the strong confidence of Thine eternal love in Jesus Christ: that as Thou hast called us to immortality through Him, so we may pass the residue of our years in the power of an endless life; and to Thy Name shall be all the praise. Amen.
+O YOU who are from everlasting to everlasting, without beginning or end of days; Replenish us with heavenly grace, at the beginning of this year, that we may be enabled to accept all its duties, to perform all its labors, to welcome all its mercies, to meet all its trials, and to advance through all it holds in store for us, with cheerful courage and a constant mind. O Lord, do not let us be separated from You, either by joy or sorrow, or any sin or weakness of our own; but have compassion upon us, and forgive us, and keep us in the strong confidence of Your eternal love in Jesus Christ: that as You have called us to immortality through Him, so we may pass the rest of our years in the power of an endless life; and to Your Name shall be all the praise. Amen.
 
-EVER-LIVING God, by whose mercy we have come to the gateway of another year; Grant that we may enter it with humble and grateful hearts; and confirm our resolution, we beseech Thee, to walk more closely in Thy way, and labour more faithfully in Thy service, according to the teaching and example of Thy Son our Lord. Let not the errors and offenses of the past cling to us, but pardon us and set us free, that with a purer purpose and a better hope, we may renew our vows in Thy Presence, and set forth under the guidance of Thy Spirit, to travel in that path which shineth more and more unto the perfect day of Thy heavenly kingdom. Amen.
+EVER-LIVING God, by whose mercy we have come to the gateway of another year; Grant that we may enter it with humble and grateful hearts; and confirm our resolution, we pray, to walk more closely in Your way, and labor more faithfully in Your service, according to the teaching and example of Your Son our Lord. Let not the errors and offenses of the past cling to us, but pardon us and set us free, that with a purer purpose and a better hope, we may renew our vows in Your Presence, and set forth under the guidance of Your Spirit, to travel in that path which shines more and more to the perfect day of Your heavenly kingdom. Amen.
 
 #### Good Friday
 
-ALMIGHTY and everlasting God, who of Thy tender love toward mankind hast sent Thy Son, our Saviour Jesus Christ, to take upon Him our flesh, and that in the form of a servant, and to suffer death, even the death of the cross, for our redemption; Mercifully grant that this mind may be in us which was also in Christ Jesus, that we may both follow the example of His humble obedience and patient suffering, and also be made partakers of His glorious resurrection, to live with Thee for ever. Grant this for the sake of Thy Son, our Saviour, Jesus Christ. Amen.
+ALMIGHTY and everlasting God, who of Your tender love toward mankind have sent Your Son, our Savior Jesus Christ, to take upon Him our flesh, and that in the form of a servant, and to suffer death, even the death of the cross, for our redemption; Mercifully grant that this mind may be in us which was also in Christ Jesus, that we may both follow the example of His humble obedience and patient suffering, and also be made partakers of His glorious resurrection, to live with You for ever. Grant this for the sake of Your Son, our Savior, Jesus Christ. Amen.
 
-O MOST merciful Father, who of Thy tender compassion toward us guilty sinners didst give Thine only-begotten Son to be an offering for our sins; Grant us grace, we humbly beseech Thee, that being united unto Him by Thy Spirit, and made partakers of His sufferings and His death, we may crucify the corrupt inclinations of the flesh, die daily unto the world, and lead holy and unblamable lives. Cleaving unto His cross in all the temptations of life, may we hold fast the profession of our faith without wavering, and finally attain unto the resurrection of the just; through the merits of this same once crucified but now risen and exalted Saviour. Amen.
+O MOST merciful Father, who of Your tender compassion toward us guilty sinners gave Your only-begotten Son to be an offering for our sins; Grant us grace, we humbly pray, that being united to Him by Your Spirit, and made partakers of His sufferings and His death, we may crucify the corrupt inclinations of the flesh, die daily to the world, and lead holy and unblamable lives. Cleaving to His cross in all the temptations of life, may we hold fast the profession of our faith without wavering, and finally attain to the resurrection of the just; through the merits of this same once crucified but now risen and exalted Savior. Amen.
 
-LORD Jesus Christ, Thou holy and spotless Lamb of God, who didst take upon Thyself our sins, and bear them in Thy body on the cross; We bless Thee for all the burdens Thou hast borne, for all the tears Thou hast wept, for all the pains Thou hast suffered, for all the words of comfort Thou hast spoken from the cross, for all Thy conflicts with the powers of darkness, and for Thine eternal victory over death and hell. With the host of the redeemed, we ascribe unto Thee power and riches and wisdom and strength and honour and glory and blessing, for ever and ever. Amen.
+LORD Jesus Christ, holy and spotless Lamb of God, who took upon Yourself our sins, and bore them in Your body on the cross; We bless You for all the burdens You have borne, for all the tears You have wept, for all the pains You have suffered, for all the words of comfort You have spoken from the cross, for all Your conflicts with the powers of darkness, and for Your eternal victory over death and hell. With the host of the redeemed, we ascribe to You power and riches and wisdom and strength and honor and glory and blessing, for ever and ever. Amen.
 
 #### Easter Day
 
-ALMIGHTY God, who hast brought again from the dead our Lord Jesus, the glorious Prince of salvation, with everlasting victory over hell and the grave; Grant us power, we beseech Thee, to rise with Him to newness of life, that we may overcome the world with the victory of faith, and have part at last in the resurrection of the just; through the merits of the same risen Saviour, who liveth and reigneth with Thee and the Holy Ghost, ever one God, world without end. Amen.
+ALMIGHTY God, who have brought again from the dead our Lord Jesus, the glorious Prince of salvation, with everlasting victory over hell and the grave; Grant us power, we pray, to rise with Him to newness of life, that we may overcome the world with the victory of faith, and have part at last in the resurrection of the just; through the merits of the same risen Savior, who lives and reigns with You and the Holy Spirit, ever one God, world without end. Amen.
 
-ALMIGHTY God, who through Thine only-begotten Son Jesus Christ hast overcome death, and opened unto us the gate of everlasting life; We humbly beseech Thee, that, as by Thy special grace preparing us Thou dost put into our minds good desires, so by Thy continual help we may bring the same to good effect; through Jesus Christ our Lord, who liveth and reigneth with Thee and the Holy Ghost, ever one God, world without end. Amen.
+ALMIGHTY God, who through Your only-begotten Son Jesus Christ have overcome death, and opened to us the gate of everlasting life; We humbly pray that, as by Your special grace preparing us You put into our minds good desires, so by Your continual help we may bring the same to good effect; through Jesus Christ our Lord, who lives and reigns with You and the Holy Spirit, ever one God, world without end. Amen.
 
-O THOU Son of God and Son of man, who by Thy victory over death hast brought life and immortality to light; Raise us, by faith in Thee, from the grave of sin, and deliver us from the mortal darkness of unbelief: that our hearts may be fortified with an eternal hope, and our affections set upon the things which are above, and our spirits clothed at last with a celestial body: in the likeness of that glory wherein Thou art exalted for evermore at the right hand of the Father. Amen.
+O SON of God and Son of man, who by Your victory over death have brought life and immortality to light; Raise us, by faith in You, from the grave of sin, and deliver us from the mortal darkness of unbelief: that our hearts may be fortified with an eternal hope, and our affections set upon the things which are above, and our spirits clothed at last with a celestial body: in the likeness of that glory in which You are exalted for evermore at the right hand of the Father. Amen.
 
-O THOU God and Father of our Lord Jesus Christ, we render Thee most humble and hearty thanks, that when He had descended into the grave, Thou didst not suffer Thy Holy One to see corruption, but didst show unto Him the path of life, and raise Him from the dead, and set Him at Thine own right hand in the heavenly places. Grant us grace, we beseech Thee, to apprehend with true faith the glorious mystery of our Saviour's resurrection, and fill our hearts with joy and a lively hope, that amid all the sorrows, trials, and temptations of our mortal state, and in the hour of death, we may derive strength and comfort from this sure pledge of an inheritance incorruptible and undefiled, and that fadeth not away. Amen.
+O GOD and Father of our Lord Jesus Christ, we render You most humble and hearty thanks, that when He had descended into the grave, You did not allow Your Holy One to see corruption, but showed Him the path of life, and raised Him from the dead, and set Him at Your own right hand in the heavenly places. Grant us grace, we pray, to apprehend with true faith the glorious mystery of our Savior's resurrection, and fill our hearts with joy and a lively hope, that amid all the sorrows, trials, and temptations of our mortal state, and in the hour of death, we may derive strength and comfort from this sure pledge of an inheritance incorruptible and undefiled, and that fadeth not away. Amen.
 
 #### Thanksgiving Day
 
-ALMIGHTY God, our heavenly Father, whose mercies are without number, and the treasure of whose goodness is infinite; We render Thee thanks for all the gifts Thou hast bestowed upon us; evermore beseeching Thy compassion; that as Thou grantest the petitions of them that faithfully ask Thee, Thou wilt never forsake them, but prepare them for the rewards to come, in Thy everlasting kingdom; through Jesus Christ our Lord. Amen.
+ALMIGHTY God, our heavenly Father, whose mercies are without number, and the treasure of whose goodness is infinite; We render You thanks for all the gifts You have bestowed upon us; evermore asking Your compassion; that as You grant the petitions of those who faithfully ask You, You will never forsake them, but prepare them for the rewards to come, in Your everlasting kingdom; through Jesus Christ our Lord. Amen.
 
-O ALMIGHTY and everlasting God, who hast blessed the labours of the husbandman, and given unto us the fruits of the earth in their season; Grant us grace to use the same to Thy glory, to the relief of those that are needy, and to our own comfort; through Jesus Christ, who is the Living Bread which cometh down from heaven and giveth life unto the world; to whom, with Thee and the Holy Spirit, be all honour and glory, now and forever. Amen.
+O ALMIGHTY and everlasting God, who have blessed the labors of the husbandman, and given to us the fruits of the earth in their season; Grant us grace to use the same to Your glory, to the relief of those who are needy, and to our own comfort; through Jesus Christ, who is the Living Bread which comes down from heaven and gives life to the world; to whom, with You and the Holy Spirit, be all honor and glory, now and forever. Amen.
 
-MOST high and mighty Ruler of the universe, by whom our Nation hath been established in freedom and preserved in union; We praise Thee for Thy favour shown unto our fathers, and Thy faithfulness continued unto their children: for the rich land given us for an inheritance, and the great power entrusted to the people: for the fidelity of men set in authority, and the peace maintained by righteous laws: for protection against our enemies, and deliverance from inward strife: for an honourable place among the nations, and the promise of increasing strength. Lord, Thou hast not dealt so with any people: Keep Thou the Commonwealth beneath Thy care, and guide the State according to Thy will: and Thine shall be the glory and the praise and the thanksgiving, from generation to generation. Amen.
+MOST high and mighty Ruler of the universe, by whom our Nation has been established in freedom and preserved in union; We praise You for Your favor shown to our fathers, and Your faithfulness continued to their children: for the rich land given us for an inheritance, and the great power entrusted to the people: for the fidelity of men set in authority, and the peace maintained by righteous laws: for protection against our enemies, and deliverance from inward strife: for an honorable place among the nations, and the promise of increasing strength. Lord, You have not dealt so with any people: Keep the Commonwealth beneath Your care, and guide the State according to Your will: and Yours shall be the glory and the praise and the thanksgiving, from generation to generation. Amen.
 
 #### Advent
 
-ALMIGHTY God, give us grace that we may cast away the works of darkness, and put upon us the armour of light, now in the time of this mortal life, in which Thy Son Jesus Christ came to visit us in great humility; that in the last day, when He shall come again in His glorious majesty to judge both the quick and dead, we may rise to the life immortal; through Him who liveth and reigneth with Thee and the Holy Ghost, now and ever. Amen.
+ALMIGHTY God, give us grace that we may cast away the works of darkness, and put upon us the armor of light, now in the time of this mortal life, in which Your Son Jesus Christ came to visit us in great humility; that in the last day, when He shall come again in His glorious majesty to judge both the living and the dead, we may rise to the life immortal; through Him who lives and reigns with You and the Holy Spirit, now and ever. Amen.
 
-O LORD Jesus Christ, who at Thy first coming didst send Thy messenger to prepare Thy way before Thee; Grant that the ministers and stewards of Thy mysteries may likewise so prepare and make ready Thy way, by turning the hearts of the disobedient to the wisdom of the just, that at Thy second coming to judge the world we may be found an acceptable people in Thy sight, who livest and reignest with the Father and the Holy Spirit, ever one God, world without end. Amen.
+O LORD Jesus Christ, who at Your first coming sent Your messenger to prepare Your way before You; Grant that the ministers and stewards of Your mysteries may likewise so prepare and make ready Your way, by turning the hearts of the disobedient to the wisdom of the just, that at Your second coming to judge the world we may be found an acceptable people in Your sight, who live and reign with the Father and the Holy Spirit, ever one God, world without end. Amen.
 
-O GOD, who dost gladden us with the continual looking for of our redemption; Grant that Thy only-begotten Son our Lord Jesus Christ, whom we now receive as our Redeemer, we may one day in safety behold coming as our Judge, who liveth and reigneth with Thee, in the unity of the Godhead, world without end. Amen.
+O GOD, who gladden us with the continual looking for of our redemption; Grant that Your only-begotten Son our Lord Jesus Christ, whom we now receive as our Redeemer, we may one day in safety behold coming as our Judge, who lives and reigns with You, in the unity of the Godhead, world without end. Amen.
 
-ALMIGHTY God, we beseech Thee, grant unto Thy people grace that they may wait with vigilance for the advent of Thy Son our Lord, that when He shall arise from Thy right hand to visit the earth in righteousness and Thy people with salvation, He may not find us sleeping in sin, but diligent in Thy service, and rejoicing in Thy praises, that so we may enter in with Him unto the marriage of the Lamb; through His merits, who liveth and reigneth with Thee and the Holy Ghost, ever one God, world without end. Amen.
+ALMIGHTY God, we pray, grant to Your people grace that they may wait with vigilance for the advent of Your Son our Lord, that when He shall arise from Your right hand to visit the earth in righteousness and Your people with salvation, He may not find us sleeping in sin, but diligent in Your service, and rejoicing in Your praises, that so we may enter in with Him to the marriage of the Lamb; through His merits, who lives and reigns with You and the Holy Spirit, ever one God, world without end. Amen.
 
 #### Christmas Day
 
-FATHER in heaven, whose mercy we praise in the yearly remembrance of the birth of Thy beloved Son, Jesus Christ our Lord; Grant that as we welcome our Redeemer, His presence may shed abroad, in our hearts and in our homes, the light of heavenly peace and joy. Make known unto all men, by Thy Word and Spirit, the Gospel of His blessed incarnation, whereby Thou hast clearly revealed Thy love for the world. And help us so to celebrate this day, in humility and gratitude, in unselfish love and cheerful service, that our keeping of Christmas may be a blessing to our souls, a memorial of Christ, a benefit to our fellowmen, and a thanksgiving unto Thee for Thine unspeakable gift of the Saviour. Amen.
+FATHER in heaven, whose mercy we praise in the yearly remembrance of the birth of Your beloved Son, Jesus Christ our Lord; Grant that as we welcome our Redeemer, His presence may shed abroad, in our hearts and in our homes, the light of heavenly peace and joy. Make known to all men, by Your Word and Spirit, the Gospel of His blessed incarnation, by which You have clearly revealed Your love for the world. And help us so to celebrate this day, in humility and gratitude, in unselfish love and cheerful service, that our keeping of Christmas may be a blessing to our souls, a memorial of Christ, a benefit to our fellowmen, and a thanksgiving to You for Your unspeakable gift of the Savior. Amen.
 
-O ALMIGHTY God, who by the birth of Thy Holy One into the world didst give Thy true light to dawn upon our darkness; Grant that as Thou hast given us to believe in the mystery of His incarnation, and hast made us partakers of the divine nature, so in the world to come we may ever abide with Him, in the glory of His kingdom; through the same Jesus Christ our Lord. Amen.
+O ALMIGHTY God, who by the birth of Your Holy One into the world gave Your true light to dawn upon our darkness; Grant that as You have given us to believe in the mystery of His incarnation, and have made us partakers of the divine nature, so in the world to come we may ever abide with Him, in the glory of His kingdom; through the same Jesus Christ our Lord. Amen.
 
-ALMIGHTY God, who hast given us Thy only-begotten Son to take our nature upon Him, and as at this time to be born of a pure virgin; Grant that we, being regenerate, and made Thy children by adoption and grace, may daily be renewed by Thy Holy Spirit; through the same our Lord Jesus Christ, who liveth and reigneth with Thee and the Spirit, ever one God, world without end. Amen.
+ALMIGHTY God, who have given us Your only-begotten Son to take our nature upon Him, and as at this time to be born of a pure virgin; Grant that we, being regenerate, and made Your children by adoption and grace, may daily be renewed by Your Holy Spirit; through the same our Lord Jesus Christ, who lives and reigns with You and the Spirit, ever one God, world without end. Amen.
 
 #### A Day of Humiliation
 
-O ALMIGHTY God, who desirest not the death but the life of sinners; Despise not Thy people returning unto Thee in their affliction, but for the glory of Thy Name be pleased to hear and succour us; that the hearts of men may know that these scourges proceed from Thy justice and cease by Thy mercy; through Christ our Lord. Amen.
+O ALMIGHTY God, who do not desire the death but the life of sinners; Do not despise Your people returning to You in their affliction, but for the glory of Your Name be pleased to hear and help us; that the hearts of men may know that these scourges proceed from Your justice and cease by Your mercy; through Christ our Lord. Amen.
 
-O MOST mighty God, King of kings and Lord of lords, without whose care the watchman waketh but in vain; We implore, in this our time of need, Thy succour and blessing in behalf of our rulers and magistrates, and of all the people of this land. Remember not our many and great transgressions; turn from us the judgments which we feel, and the yet greater judgments which we fear; and give us wisdom to discern, and faithfulness to do, and patience to endure, whatsoever shall be well-pleasing in Thy sight; that so Thy chastenings may yield the peaceful fruits of righteousness, and that at the last, we may rejoice in Thy salvation; through Jesus Christ our Lord. Amen.
+O MOST mighty God, King of kings and Lord of lords, without whose care the watchman wakes but in vain; We implore, in this our time of need, Your help and blessing on behalf of our rulers and magistrates, and of all the people of this land. Do not remember our many and great transgressions; turn from us the judgments which we feel, and the yet greater judgments which we fear; and give us wisdom to discern, and faithfulness to do, and patience to endure, whatever shall be well-pleasing in Your sight; that so Your chastenings may yield the peaceful fruits of righteousness, and that at the last, we may rejoice in Your salvation; through Jesus Christ our Lord. Amen.
 
-ALMIGHTY God, who forgivest the iniquities of Thy people, and healest all their diseases; who hast promised to heal us in Thy Son's Name, and hast sent Him to bear our burdens; Look down upon us, Thine unworthy servants, who humble ourselves before Thee and acknowledge that we have justly provoked Thine anger. We beseech Thee to have mercy upon us, and to forgive us; and of Thy loving-kindness to remove this [*here let the national affliction be named*], the judgment of Thy hand, with which Thou hast visited us; and this we ask for the honour of Thy great Name; through Jesus Christ our Lord. Amen.
+ALMIGHTY God, who forgive the iniquities of Your people, and heal all their diseases; who have promised to heal us in Your Son's Name, and have sent Him to bear our burdens; Look down upon us, Your unworthy servants, who humble ourselves before You and acknowledge that we have justly provoked Your anger. We ask You to have mercy upon us, and to forgive us; and of Your loving-kindness to remove this [*here let the national affliction be named*], the judgment of Your hand, with which You have visited us; and this we ask for the honor of Your great Name; through Jesus Christ our Lord. Amen.
 
 #### A Session of the General Assembly
 
-ALMIGHTY God, who by Thy Holy Spirit dost inhabit the whole company of the faithful; Graciously regard, we beseech Thee, Thy servants gathered before Thee at this time, in the General Assembly and chief council of this Church. Shed down upon them heavenly wisdom and grace; enlighten them with true knowledge of Thy Word; inspire them with a pure zeal for Thy glory; and so order all their doings through Thy good Spirit that unity and peace may prevail among them; that truth and righteousness may flow forth from them; and that, by their endeavours, all Thy ministers and congregations may be established and comforted, Thy Gospel everywhere purely preached and truly followed, Thy kingdom among men extended and strengthened, and the whole body of Thine elect people grow up into Him who is Head over all things to the Church, Jesus Christ our Lord. Amen.
+ALMIGHTY God, who by Your Holy Spirit inhabit the whole company of the faithful; Graciously regard, we pray, Your servants gathered before You at this time, in the General Assembly and chief council of this Church. Shed down upon them heavenly wisdom and grace; enlighten them with true knowledge of Your Word; inspire them with a pure zeal for Your glory; and so order all their doings through Your good Spirit that unity and peace may prevail among them; that truth and righteousness may flow forth from them; and that, by their endeavors, all Your ministers and congregations may be established and comforted, Your Gospel everywhere purely preached and truly followed, Your kingdom among men extended and strengthened, and the whole body of Your elect people grow up into Him who is Head over all things to the Church, Jesus Christ our Lord. Amen.
 
-ALMIGHTY and everlasting God, who by Thy Holy Spirit didst enlighten the minds of Thy servants the Apostles and Elders, met together at Jerusalem to take counsel for the peace and unity of Thy Church, and hast promised by Thy Son Jesus Christ to be with Thy faithful ministers to the end of the world; Grant us, we beseech Thee, the same enlightening and life-giving Spirit, that those things which seem good unto the Holy Ghost may also seem good unto us. Let brotherly love continue, and in lowliness of mind let each esteem other better than himself; save us from all uncharitable judging and rash speaking. Let the peace of God rule in our hearts, and the law of kindness dwell upon our lips; and of Thy great mercy vouchsafe, we beseech Thee, so to direct, sanctify, and govern us in all our doings, by the indwelling of Thy good Spirit, that the Gospel of Christ may be truly preached, devoutly received, and heartily obeyed, in all places, to the breaking down of the kingdom of sin and Satan; till at length the whole flock of Thy dispersed sheep being gathered into Thy fold, under the one Bishop and Shepherd of our souls, shall become partakers of everlasting life, through the merits and mediation of Thy dear Son Jesus Christ our Lord; to whom be glory in the Church, world without end. Amen.
+ALMIGHTY and everlasting God, who by Your Holy Spirit enlightened the minds of Your servants the Apostles and Elders, met together at Jerusalem to take counsel for the peace and unity of Your Church, and have promised by Your Son Jesus Christ to be with Your faithful ministers to the end of the world; Grant us, we pray, the same enlightening and life-giving Spirit, that those things which seem good to the Holy Spirit may also seem good to us. Let brotherly love continue, and in lowliness of mind let each esteem other better than himself; save us from all uncharitable judging and rash speaking. Let the peace of God rule in our hearts, and the law of kindness dwell upon our lips; and of Your great mercy be pleased, we pray, so to direct, sanctify, and govern us in all our doings, by the indwelling of Your good Spirit, that the Gospel of Christ may be truly preached, devoutly received, and heartily obeyed, in all places, to the breaking down of the kingdom of sin and Satan; till at length the whole flock of Your dispersed sheep being gathered into Your fold, under the one Bishop and Shepherd of our souls, shall become partakers of everlasting life, through the merits and mediation of Your dear Son Jesus Christ our Lord; to whom be glory in the Church, world without end. Amen.
 
 #### A Meeting of Synod or Presbytery
 
-ALMIGHTY God, who through the Apostles of Thy Son Jesus Christ didst order the governance of Thy flock, causing Elders to be ordained in every church, both to teach and to rule, send now Thy blessing upon [the Synod, *or* Presbytery, of ——] assembled in Thy Name. Grant unto Thy servants the spirit of power, and of love, and of a sound mind, that we may be wise in council and diligent in service, faithful stewards of the things belonging to Thy kingdom, and worthy successors of the Apostles whom our Lord sent forth to testify of Him. Direct and govern us by Thy Holy Spirit, preserving us from hasty judgment and vain dispute, inspiring us with hearty love and true devotion, and guiding us both to devise and do those things which shall be for the glory of Christ's Name, for the welfare of His Church, for the peace of all believers, for the spread of the Gospel, and for the good of the whole world. Amen.
+ALMIGHTY God, who through the Apostles of Your Son Jesus Christ ordered the governance of Your flock, causing Elders to be ordained in every church, both to teach and to rule, send now Your blessing upon [the Synod, *or* Presbytery, of ——] assembled in Your Name. Grant to Your servants the spirit of power, and of love, and of a sound mind, that we may be wise in council and diligent in service, faithful stewards of the things belonging to Your kingdom, and worthy successors of the Apostles whom our Lord sent forth to testify of Him. Direct and govern us by Your Holy Spirit, preserving us from hasty judgment and vain dispute, inspiring us with hearty love and true devotion, and guiding us both to devise and do those things which shall be for the glory of Christ's Name, for the welfare of His Church, for the peace of all believers, for the spread of the Gospel, and for the good of the whole world. Amen.
 
 #### A Session of Congress
 
-MOST gracious God, we humbly beseech Thee, as for the people of this Nation in general, so especially for their Senate and Representatives in Congress assembled; That Thou wouldest be pleased to direct and prosper all their consultations, to the advancement of Thy glory, the good of Thy Church, the safety, honour, and welfare of the people; that all things may be so ordered and settled by their endeavours, upon the best and surest foundations, that peace and happiness, truth and justice, virtue and piety, may be established among us. These and all other necessaries, for them, for us, and Thy whole Church, we humbly beg in the Name of Jesus Christ, our most blessed Lord and Saviour. Amen.
+MOST gracious God, we humbly pray to You, as for the people of this Nation in general, so especially for their Senate and Representatives in Congress assembled; That You would be pleased to direct and prosper all their consultations, to the advancement of Your glory, the good of Your Church, the safety, honor, and welfare of the people; that all things may be so ordered and settled by their endeavors, upon the best and surest foundations, that peace and happiness, truth and justice, virtue and piety, may be established among us. These and all other necessaries, for them, for us, and Your whole Church, we humbly ask in the Name of Jesus Christ, our most blessed Lord and Savior. Amen.
 
 #### A Session of the Legislature
 
-O THOU who rulest in equity and declarest righteous judgment; Send down upon the Legislature of this State, [here] lawfully convened, the spirit of concord, purity, and justice, that all false counsels and evil influences may be absent from the assembly, and that the servants of the people may be directed in wisdom and integrity, according to Thy laws. So guide and prosper with Thy blessing whatsoever may be devised and enacted, that it may redound to the honour and welfare of this Commonwealth, to the peace and prosperity of the whole Union, and to the glory of Thy Name. Amen.
+O YOU who rule in equity and declare righteous judgment; Send down upon the Legislature of this State, [here] lawfully convened, the spirit of concord, purity, and justice, that all false counsels and evil influences may be absent from the assembly, and that the servants of the people may be directed in wisdom and integrity, according to Your laws. So guide and prosper with Your blessing whatsoever may be devised and enacted, that it may redound to the honor and welfare of this Commonwealth, to the peace and prosperity of the whole Union, and to the glory of Your Name. Amen.
 
 #### A Daily Prayer for the Army
 
-O LORD God, high and mighty, who doest Thy will in the army of heaven and amongst the inhabitants of the earth; Stretch forth the shield of Thy most merciful protection over us Thy servants, and the Army [or Regiment] in which we serve. Lead and guide us evermore by the counsel of Thy goodness; strengthen and defend us with Thy might; that we may steadfastly continue an honour and bulwark of our land, a terror to evil-doers, and a sure defense against every enemy; and finally, having quitted ourselves like men, and as good soldiers of the Lord Jesus, may we enter into Thy eternal glory; through Him who is our only Deliverer and the Captain of our salvation, Jesus Christ our Lord. Amen.
+O LORD God, high and mighty, who do Your will in the army of heaven and among the inhabitants of the earth; Stretch forth the shield of Your most merciful protection over us Your servants, and the Army [or Regiment] in which we serve. Lead and guide us evermore by the counsel of Your goodness; strengthen and defend us with Your might; that we may steadfastly continue an honor and bulwark of our land, a terror to evil-doers, and a sure defense against every enemy; and finally, having quitted ourselves like men, and as good soldiers of the Lord Jesus, may we enter into Your eternal glory; through Him who is our only Deliverer and the Captain of our salvation, Jesus Christ our Lord. Amen.
 
 #### A Daily Prayer for the Navy
 
-O ETERNAL Lord God, who alone spreadest out the heavens and rulest the raging of the sea, and hast compassed the waters with bounds until day and night come to an end; Be pleased to receive into Thy almighty and most gracious protection the persons of us Thy servants, and the Fleet [*or* Ship] in which we serve. Preserve us from the dangers of the deep and from the violence of enemies; that we may be a safeguard unto our country, and a security for such as do business in the mighty waters: that the inhabitants of our land may have peace and freedom to serve Thee; and that in due season we may return to our homes, with a thankful remembrance of Thy mercies; and, finally having passed the sea of this troublous life, may enter the haven of eternal rest; through Him, who is our only Refuge and Saviour, Jesus Christ our Lord. Amen.
+O ETERNAL Lord God, who alone spread out the heavens and rule the raging of the sea, and have compassed the waters with bounds until day and night come to an end; Be pleased to receive into Your almighty and most gracious protection the persons of us Your servants, and the Fleet [*or* Ship] in which we serve. Preserve us from the dangers of the deep and from the violence of enemies; that we may be a safeguard to our country, and a security for such as do business in the mighty waters: that the inhabitants of our land may have peace and freedom to serve You; and that in due season we may return to our homes, with a thankful remembrance of Your mercies; and, finally having passed the sea of this troublous life, may enter the haven of eternal rest; through Him, who is our only Refuge and Savior, Jesus Christ our Lord. Amen.
 
 #### In Time of Dearth and Famine
 
-O GOD, heavenly Father, whose gift it is that the rain doth fall, and the earth bring forth her increase; Behold, we beseech Thee, the afflictions of Thy people; increase the fruits of the earth by Thy heavenly benediction; and grant that the scarcity and dearth which we now suffer, may through Thy goodness be mercifully turned into plenty; that we, receiving Thy bountiful liberality, may use the same to Thy glory, the relief of those that are needy, and our own comfort; for the love of Jesus Christ our Lord, to whom, with Thee and the Holy Ghost, be all honour and glory, now and for ever. Amen.
+O GOD, heavenly Father, whose gift it is that the rain falls, and the earth brings forth her increase; Behold, we pray, the afflictions of Your people; increase the fruits of the earth by Your heavenly benediction; and grant that the scarcity and dearth which we now suffer may through Your goodness be mercifully turned into plenty; that we, receiving Your bountiful liberality, may use the same to Your glory, the relief of those who are needy, and our own comfort; for the love of Jesus Christ our Lord, to whom, with You and the Holy Spirit, be all honor and glory, now and for ever. Amen.
 
 #### In Time of Pestilence
 
-HOLY and mighty Lord, who didst turn back the angel of the plague from the dwellings of Thy people; We beseech Thee to hear our cry for those who are suffering and dying, [*here, if any place be specially afflicted, let it be named,*] under the visitation of disease. Mercifully bless the means which are used to stay the spread of sickness, strengthen those who labour to heal and comfort the afflicted, support those who are in pain and distress, speedily restore those who have been brought low, and unto all who are beyond healing, grant Thy heavenly consolation and Thy saving grace; through Jesus Christ our Lord. Amen.
+HOLY and mighty Lord, who turned back the angel of the plague from the dwellings of Your people; We ask You to hear our cry for those who are suffering and dying, [*here, if any place is specially afflicted, let it be named,*] under the visitation of disease. Mercifully bless the means which are used to stay the spread of sickness, strengthen those who labor to heal and comfort the afflicted, support those who are in pain and distress, speedily restore those who have been brought low, and to all who are beyond healing, grant Your heavenly consolation and Your saving grace; through Jesus Christ our Lord. Amen.
 
 #### After a Great Disaster
 
-ALMIGHTY God, who art a very present help in time of trouble; Let not the heart of Thy people fail when fear cometh, but do Thou sustain and comfort them until these calamities be overpast: and since Thou knowest the cause and reason why this grievous disaster, [*of fire, flood, earthquake, shipwreck, or other trouble,*] hath fallen upon men, so do Thou heal the hurt and wounded, console the bereaved and afflicted, protect the innocent and helpless, and deliver any who are still in peril, for Thy great mercy's sake. Amen.
+ALMIGHTY God, who are a very present help in time of trouble; Do not let the heart of Your people fail when fear comes, but sustain and comfort them until these calamities are past: and since You know the cause and reason why this grievous disaster, [*of fire, flood, earthquake, shipwreck, or other trouble,*] has fallen upon men, so heal the hurt and wounded, console the bereaved and afflicted, protect the innocent and helpless, and deliver any who are still in peril, for Your great mercy's sake. Amen.
 
 #### In Time of Insurrections and Tumults
 
-O ALMIGHTY Lord God, who alone riddest away tyrants by Thine everlasting determination, and stillest the noise and tumult of the people; Stir up Thy great strength, we beseech Thee, and come and help us; scatter the counsels of them that secretly devise mischief, and bring the dealings of the violent to naught; cast down the unjust from high places, and cause the unruly to cease from troubling; allay all envious and malicious passions, and subdue the haters and the evil-doers; that our land may have rest before Thee, and that all the people may praise Thee, our Help and our Shield, both now and evermore. Amen.
+O ALMIGHTY Lord God, who alone rid away tyrants by Your everlasting determination, and still the noise and tumult of the people; Stir up Your great strength, we pray, and come and help us; scatter the counsels of those who secretly devise mischief, and bring the dealings of the violent to naught; cast down the unjust from high places, and cause the unruly to cease from troubling; allay all envious and malicious passions, and subdue the haters and the evil-doers; that our land may have rest before You, and that all the people may praise You, our Help and our Shield, both now and evermore. Amen.
 
 #### In Time of War
 
-O ALMIGHTY God, supreme Ruler and Governor of all things, who art a strong tower of defense to them that fear Thee, and whose power no creature is able to resist; Unto Thee do we cry in the hour of our country's need. To Thee it belongeth justly to punish sinners and to be merciful to those who repent. Save and deliver us, we humbly beseech Thee, from the hands of our enemies; abate their pride, assuage their malice, and confound their devices; that we, being armed with Thy defense, may be preserved evermore from all perils, to glorify Thee, who art the only Giver of all victory; through the merits of Thy Son Jesus Christ our Lord. Amen.
+O ALMIGHTY God, supreme Ruler and Governor of all things, who are a strong tower of defense to those who fear You, and whose power no creature is able to resist; To You do we cry in the hour of our country's need. To You it belongs justly to punish sinners and to be merciful to those who repent. Save and deliver us, we humbly pray, from the hands of our enemies; abate their pride, assuage their malice, and confound their devices; that we, being armed with Your defense, may be preserved evermore from all perils, to glorify You, who are the only Giver of all victory; through the merits of Your Son Jesus Christ our Lord. Amen.
 
-O LORD God of infinite mercy, we humbly beseech Thee to look down upon the nations now engaged in war. Reckon not against Thy people their many iniquities, for from the lusts of our own hearts come wars and fightings amongst us. Look in mercy on those immediately exposed to peril, conflict, sickness, and death: comfort the prisoners, relieve the sufferings of the wounded, and show mercy to the dying. Remove in Thy good providence all causes and occasions of war; dispose the hearts of those engaged therein to moderation; and of Thy great goodness restore peace among the nations; through Jesus Christ our Lord. Amen.
+O LORD God of infinite mercy, we humbly ask You to look down upon the nations now engaged in war. Do not reckon against Your people their many iniquities, for from the lusts of our own hearts come wars and fightings among us. Look in mercy on those immediately exposed to peril, conflict, sickness, and death: comfort the prisoners, relieve the sufferings of the wounded, and show mercy to the dying. Remove in Your good providence all causes and occasions of war; dispose the hearts of those engaged therein to moderation; and of Your great goodness restore peace among the nations; through Jesus Christ our Lord. Amen.
 
 #### In Time of Peace Restored
 
-O ETERNAL God, our heavenly Father, who alone makest men to be of one mind, and stillest the outrage of a violent and unruly people; We bless Thy holy Name that it hath pleased Thee to appease the tumults which have been lately raised up among us; most humbly beseeching Thee to grant to all of us grace, that we may henceforth obediently walk in Thy holy commandments; and, leading a quiet and peaceable life in all godliness and honesty, may continually offer unto Thee our sacrifice of praise and thanksgiving for these Thy mercies toward us; through Jesus Christ our Lord. Amen.
+O ETERNAL God, our heavenly Father, who alone make men to be of one mind, and still the outrage of a violent and unruly people; We bless Your holy Name that it has pleased You to appease the tumults which have been lately raised up among us; most humbly asking You to grant to all of us grace, that we may from now on obediently walk in Your holy commandments; and, leading a quiet and peaceable life in all godliness and honesty, may continually offer to You our sacrifice of praise and thanksgiving for these Your mercies toward us; through Jesus Christ our Lord. Amen.
 
-ALMIGHTY and everlasting God, who makest wars to cease unto the ends of the earth; We praise and magnify that great mercy, whereby Thou hast not only freed our borders from every enemy, and given us rest and quietness, but out of Thine abundant goodness art shedding down the same blessed tranquillity upon the nations round about us; and we humbly beseech Thee, that, being subdued by Thy truth, they may evermore dwell together in love as one family of mankind; through Jesus Christ our Lord. Amen.
+ALMIGHTY and everlasting God, who make wars to cease to the ends of the earth; We praise and magnify that great mercy, by which You have not only freed our borders from every enemy, and given us rest and quietness, but out of Your abundant goodness are shedding down the same blessed tranquillity upon the nations round about us; and we humbly pray that, being subdued by Your truth, they may evermore dwell together in love as one family of mankind; through Jesus Christ our Lord. Amen.
 
 ### III. Intercessions for Special Objects and Persons
 
 #### For Our Country
 
-ALMIGHTY God, King of kings, and Lord of lords, from whom proceed all power and dominion in heaven and earth; Most heartily we beseech Thee to look with favour upon Thy servants, the President of the United States, the Governor of this State, and all others in authority. Imbue them with the spirit of wisdom, goodness, and truth; and so rule their hearts, and bless their endeavours, that law and order, justice and peace may everywhere prevail. Preserve us from public calamities; from pestilence and famine; from war, privy conspiracy, and rebellion; but especially from national sins and corruption. Make us strong and great in the fear of God, and in the love of righteousness; so that being blessed of Thee, we may become a blessing to all nations, to the praise of the glory of Thy grace; through Jesus Christ. Amen.
+ALMIGHTY God, King of kings, and Lord of lords, from whom proceed all power and dominion in heaven and earth; Most heartily we ask You to look with favor upon Your servants, the President of the United States, the Governor of this State, and all others in authority. Imbue them with the spirit of wisdom, goodness, and truth; and so rule their hearts, and bless their endeavors, that law and order, justice and peace may everywhere prevail. Preserve us from public calamities; from pestilence and famine; from war, privy conspiracy, and rebellion; but especially from national sins and corruption. Make us strong and great in the fear of God, and in the love of righteousness; so that being blessed of You, we may become a blessing to all nations, to the praise of the glory of Your grace; through Jesus Christ. Amen.
 
-O MOST powerful Lord God, blessed and only Potentate, who hast granted unto our country liberty, and established our Nation in righteousness by the people's will: Guide and direct the multitudes whom Thou hast ordained in power, by Thy pure wisdom and Thy just laws; that their counsels may be filled with knowledge and equity, and the whole estate of the Commonwealth be preserved in peace, unity, strength, and honour: And take under Thy governance and protection, Thy servants, the President, the Governor of this State, the lawgivers, the judges, the counsellors, the magistrates, and all who are entrusted with authority; so defending them from all evil and enriching them with all needed good, that the people may prosper in freedom beneath an equal law, and our Nation may magnify Thy Name in all the earth; through Jesus Christ our Lord. Amen.
+O MOST powerful Lord God, blessed and only Potentate, who have granted to our country liberty, and established our Nation in righteousness by the people's will: Guide and direct the multitudes whom You have ordained in power, by Your pure wisdom and Your just laws; that their counsels may be filled with knowledge and equity, and the whole estate of the Commonwealth be preserved in peace, unity, strength, and honor: And take under Your governance and protection, Your servants, the President, the Governor of this State, the lawgivers, the judges, the counsellors, the magistrates, and all who are entrusted with authority; so defending them from all evil and enriching them with all needed good, that the people may prosper in freedom beneath an equal law, and our Nation may magnify Your Name in all the earth; through Jesus Christ our Lord. Amen.
 
 #### For Deliverance from National Sins
 
-LORD God Almighty, defend our land, we beseech Thee, from the secret power and the open shame of great national sins. From all dishonesty and civic corruption; from all vainglory and selfish luxury; from all cruelty and the spirit of violence; from covetousness which is idolatry; from impurity which defiles the temple of the Holy Spirit; and from intemperance which is the mother of many crimes and sorrows; good Lord, deliver and save us, and our children, and our children's children, in the land which Thou hast blessed with the light of pure religion; through Jesus Christ, our only Saviour and King. Amen.
+LORD God Almighty, defend our land, we pray, from the secret power and the open shame of great national sins. From all dishonesty and civic corruption; from all vainglory and selfish luxury; from all cruelty and the spirit of violence; from covetousness which is idolatry; from impurity which defiles the temple of the Holy Spirit; and from intemperance which is the mother of many crimes and sorrows; good Lord, deliver and save us, and our children, and our children's children, in the land which You have blessed with the light of pure religion; through Jesus Christ, our only Savior and King. Amen.
 
 #### For the Church and Missions
 
-ALMIGHTY and everlasting God, who hast revealed Thy glory, by Christ, among all nations; Preserve the works of Thy mercy; that Thy Church, which is spread throughout the world, may persevere with steadfast faith in the confession of Thy Name; through Jesus Christ our Lord. Amen.
+ALMIGHTY and everlasting God, who have revealed Your glory, by Christ, among all nations; Preserve the works of Your mercy; that Your Church, which is spread throughout the world, may persevere with steadfast faith in the confession of Your Name; through Jesus Christ our Lord. Amen.
 
-O ALMIGHTY God, who hast built Thy Church upon the foundation of the Apostles and Prophets, Jesus Christ Himself being the chief Corner Stone: Grant that by the operation of the Holy Ghost, all Christians may be so joined together in unity of Spirit, and in the bond of peace, that they may be an holy temple acceptable unto Thee.
+O ALMIGHTY God, who have built Your Church upon the foundation of the Apostles and Prophets, Jesus Christ Himself being the chief Corner Stone: Grant that by the operation of the Holy Spirit, all Christians may be so joined together in unity of Spirit, and in the bond of peace, that they may be a holy temple acceptable to You.
 
-And especially to this congregation present give the abundance of Thy grace, that with one heart they may desire the prosperity of Thy holy universal Church, and with one mouth may profess the faith once delivered to the saints. Defend them from the sins of false doctrine and the spirit of strife; let not the foot of pride come nigh to hurt them, nor the hand of the ungodly to cast them down. And grant that the course of this world may be so peaceably ordered by Thy governance, that Thy Church may joyfully serve Thee in all godly quietness: that so they may walk in the ways of truth and peace, and at last be numbered with Thy saints in glory everlasting; through Thy merits, O blessed Jesus, Thou gracious Bishop and Shepherd of our souls, who art, with the Father and the Holy Ghost, one God, world without end. Amen.
+And especially to this congregation present give the abundance of Your grace, that with one heart they may desire the prosperity of Your holy universal Church, and with one mouth may profess the faith once delivered to the saints. Defend them from the sins of false doctrine and the spirit of strife; do not let the foot of pride come near to hurt them, nor the hand of the ungodly to cast them down. And grant that the course of this world may be so peaceably ordered by Your governance, that Your Church may joyfully serve You in all godly quietness: that so they may walk in the ways of truth and peace, and at last be numbered with Your saints in glory everlasting; through Your merits, O blessed Jesus, gracious Bishop and Shepherd of our souls, who are, with the Father and the Holy Spirit, one God, world without end. Amen.
 
-O THOU who hast founded a Church for Thyself, and hast promised to dwell in it for ever; Enlighten and sanctify it, we beseech Thee, by Thy Word and Spirit; endue all pastors and ministers with Thy grace, that they may with joy and assurance guard and feed Thy sheep, looking to the great Bishop and Shepherd of souls. Bless all who serve Thee in the rule of Thy Church; in the care of Thy poor; in the ministry of Thy praise; and in the teaching of the young. Strengthen them in their labours; give them courage to witness a good confession; and cause Thy Church to increase more and more, that every knee may bow before Thee, and every tongue confess that Jesus Christ is Lord. Amen.
+O YOU who have founded a Church for Yourself, and have promised to dwell in it for ever; Enlighten and sanctify it, we pray, by Your Word and Spirit; endue all pastors and ministers with Your grace, that they may with joy and assurance guard and feed Your sheep, looking to the great Bishop and Shepherd of souls. Bless all who serve You in the rule of Your Church; in the care of Your poor; in the ministry of Your praise; and in the teaching of the young. Strengthen them in their labors; give them courage to witness a good confession; and cause Your Church to increase more and more, that every knee may bow before You, and every tongue confess that Jesus Christ is Lord. Amen.
 
-O GOD, the Father of our Lord Jesus Christ, our only Saviour, the Prince of Peace; give us grace seriously to lay to heart the great dangers we are in by our unhappy divisions. Take away all hatred and prejudice, and whatsoever else may hinder us from godly union and concord; that, as there is but one body, and one Spirit, and one hope of our calling, one Lord, one faith, one baptism, one God and Father of us all, so we may be all of one heart and of one soul, united in one holy bond of truth and peace, of faith and charity, and may with one mind and one mouth glorify Thee; through Jesus Christ our Lord. Amen.
+O GOD, the Father of our Lord Jesus Christ, our only Savior, the Prince of Peace; give us grace seriously to lay to heart the great dangers we are in by our unhappy divisions. Take away all hatred and prejudice, and whatsoever else may hinder us from godly union and concord; that, as there is but one body, and one Spirit, and one hope of our calling, one Lord, one faith, one baptism, one God and Father of us all, so we may be all of one heart and of one soul, united in one holy bond of truth and peace, of faith and charity, and may with one mind and one mouth glorify You; through Jesus Christ our Lord. Amen.
 
-O LORD, who didst come to seek and to save the lost and to whom all power is given in heaven and in earth; Hear the prayers of Thy Church for those who, at Thy command, go forth to preach the Gospel to every creature. Preserve them from all dangers; from perils by land and perils by water; from the deadly pestilence; from the violence of the persecutor; from doubt and impatience; from discouragement and discord; and from all the devices of the powers of darkness. While they plant and water, O Lord, send Thou the increase; gather in the multitude of the heathen; and convert in Christian lands such as neglect Thy great salvation; that Thy Name may be glorified, and Thy kingdom come, O Saviour of the world; to whom, with the Father and the Holy Ghost, be honour and glory, world without end. Amen.
+O LORD, who came to seek and to save the lost and to whom all power is given in heaven and in earth; Hear the prayers of Your Church for those who, at Your command, go forth to preach the Gospel to every creature. Preserve them from all dangers; from perils by land and perils by water; from the deadly pestilence; from the violence of the persecutor; from doubt and impatience; from discouragement and discord; and from all the devices of the powers of darkness. While they plant and water, O Lord, send the increase; gather in the multitude of the heathen; and convert in Christian lands such as neglect Your great salvation; that Your Name may be glorified, and Your kingdom come, O Savior of the world; to whom, with the Father and the Holy Spirit, be honor and glory, world without end. Amen.
 
-O GOD, who hast made of one blood all nations of men for to dwell on the face of the whole earth, and didst send Thy blessed Son to preach peace to them that are far off and to them that are nigh; Grant that all men everywhere may seek after Thee and find Thee. Bring the nations into Thy fold, and add the heathen to Thine inheritance. And we pray Thee shortly to accomplish the number of Thine elect, and to hasten Thy kingdom; through the same Jesus Christ our Lord. Amen.
+O GOD, who have made of one blood all nations of men to dwell on the face of the whole earth, and sent Your blessed Son to preach peace to those who are far off and to those who are near; Grant that all men everywhere may seek after You and find You. Bring the nations into Your fold, and add the heathen to Your inheritance. And we pray You shortly to accomplish the number of Your elect, and to hasten Your kingdom; through the same Jesus Christ our Lord. Amen.
 
-ETERNAL Father, who art loving unto every man, and hast given Thy Son to be the Saviour of the world; Grant that the pure light of His Gospel may overcome the darkness of idolatry in every land, and that all Thy lost children, dwelling in far countries, may be brought home to Thee. Revive the spirit of missions in Thy Church, that all Thy people may earnestly desire the conversion of mankind; and so quicken our hearts, that there may be a larger outpouring of prayer and gifts and personal service, to advance the world-wide triumph of Thy kingdom. Protect the messengers of the Gospel amid all perils; guide them through all perplexities; give them wisdom, strength, and courage to make known by word and life the grace of our Lord Jesus; prosper all that they do, in His blessed Name, to serve the bodies and the souls of men; and hasten, we beseech Thee, the promised day, when at the Name of Jesus every knee shall bow, and every tongue confess that He is Lord, to the glory of God the Father. Amen.
+ETERNAL Father, who are loving to every man, and have given Your Son to be the Savior of the world; Grant that the pure light of His Gospel may overcome the darkness of idolatry in every land, and that all Your lost children, dwelling in far countries, may be brought home to You. Revive the spirit of missions in Your Church, that all Your people may earnestly desire the conversion of mankind; and so quicken our hearts, that there may be a larger outpouring of prayer and gifts and personal service, to advance the world-wide triumph of Your kingdom. Protect the messengers of the Gospel amid all perils; guide them through all perplexities; give them wisdom, strength, and courage to make known by word and life the grace of our Lord Jesus; prosper all that they do, in His blessed Name, to serve the bodies and the souls of men; and hasten, we pray, the promised day, when at the Name of Jesus every knee shall bow, and every tongue confess that He is Lord, to the glory of God the Father. Amen.
 
 #### For Evangelistic Work
 
-INCREASE, O God, the faith and the zeal of all Thy people, that they may more earnestly desire, and more diligently seek, the salvation of their fellow-men, through the message of Thy love in Jesus Christ our Lord. Send forth a mighty call unto Thy servants to preach Thy Word, and multiply the number of those who labour in the Gospel; granting unto them a heart of love, sincerity of speech, and the power of the Holy Ghost, that they may be able to persuade men to forsake sin and turn unto Thee. And so bless and favour the work of Thine evangelists, that multitudes may be brought from the kingdom of evil into the kingdom of Thy dear Son, our Saviour Jesus Christ. Amen.
+INCREASE, O God, the faith and the zeal of all Your people, that they may more earnestly desire, and more diligently seek, the salvation of their fellow-men, through the message of Your love in Jesus Christ our Lord. Send forth a mighty call to Your servants to preach Your Word, and multiply the number of those who labor in the Gospel; granting to them a heart of love, sincerity of speech, and the power of the Holy Spirit, that they may be able to persuade men to forsake sin and turn to You. And so bless and favor the work of Your evangelists, that multitudes may be brought from the kingdom of evil into the kingdom of Your dear Son, our Savior Jesus Christ. Amen.
 
 #### For All who do Good to their Fellow-Men
 
-O GOD, who hast given unto Thy servants diversities of gifts by the same Spirit, and hast taught us by Thy holy apostle that all our doings without charity are nothing worth; Be pleased to bless and prosper all who love and serve their fellow-men with a pure heart fervently, remembering the poor, healing the sick, comforting the sorrowful, teaching the ignorant, and lifting up the afflicted; let their prayers and alms come up for a memorial before Thee; and reward them plentifully with peace; through the merits of Jesus Christ our only Saviour. Amen.
+O GOD, who have given to Your servants diversities of gifts by the same Spirit, and have taught us by Your holy apostle that all our doings without charity are nothing worth; Be pleased to bless and prosper all who love and serve their fellow-men with a pure heart fervently, remembering the poor, healing the sick, comforting the sorrowful, teaching the ignorant, and lifting up the afflicted; let their prayers and alms come up for a memorial before You; and reward them plentifully with peace; through the merits of Jesus Christ our only Savior. Amen.
 
 #### For the Coming of God's Kingdom and Universal Peace
 
-O THOU King eternal, immortal, invisible, Thou only wise God our Saviour; Hasten, we beseech Thee, the coming of Thy kingdom upon earth, and draw the whole world of mankind into willing obedience to Thy blessed reign. Overcome all the enemies of Christ, and bring low every power that is exalted against Him. Cast out all the evil things which cause wars and fightings among us, and let Thy Spirit rule the hearts of men in righteousness and love. Restore the desolations of former days; rejoice the wilderness with beauty; and make glad the city with Thy law. Establish every work that is founded on truth and equity, and fulfil all the good hopes and desires of Thy people. Manifest Thy will, Almighty Father, in the brotherhood of man, and bring in universal peace; through the victory of Christ our Lord. Amen.
+O KING eternal, immortal, invisible, the only wise God our Savior; Hasten, we pray, the coming of Your kingdom upon earth, and draw the whole world of mankind into willing obedience to Your blessed reign. Overcome all the enemies of Christ, and bring low every power that is exalted against Him. Cast out all the evil things which cause wars and fightings among us, and let Your Spirit rule the hearts of men in righteousness and love. Restore the desolations of former days; rejoice the wilderness with beauty; and make glad the city with Your law. Establish every work that is founded on truth and equity, and fulfill all the good hopes and desires of Your people. Manifest Your will, Almighty Father, in the brotherhood of man, and bring in universal peace; through the victory of Christ our Lord. Amen.
 
 #### For the Young
 
-ETERNAL Father, who out of the mouths of babes and sucklings hast ordained strength; Reveal Thyself unto our children, we beseech Thee, and grant them an entrance into Thy heavenly kingdom; that, being born again of the Spirit and taught by the Lord Jesus, they may grow up before Thee in purity of heart and innocency of life, until they come unto the measure of the stature of the fulness of Christ. Amen.
+ETERNAL Father, who out of the mouths of babes and sucklings have ordained strength; Reveal Yourself to our children, we pray, and grant them an entrance into Your heavenly kingdom; that, being born again of the Spirit and taught by the Lord Jesus, they may grow up before You in purity of heart and innocency of life, until they come to the measure of the stature of the fullness of Christ. Amen.
 
 #### For Sunday-Schools
 
-O GOD, our Father, in whose image all the children of men are made; Most heartily we beseech Thee to bless the Sunday-schools of the Church, that the young may be instructed in Thy Word, and that Thy likeness may be renewed in their hearts, through the knowledge of Thy dear Son, our Lord. Open the Holy Scripture, both to those who teach and to those who learn, that the difficulties of the letter may not hide the light of the Spirit. Make all the scholars ready to be taught and willing to obey, that they may find joy and peace in the way of Thy commandments. Enrich the teachers with patient faithfulness and loving wisdom, and send out more labourers into this part of Thy vineyard, that the young and tender plants may be nourished and trained to bring forth fruit unto everlasting life. Finally we beseech Thee, O most merciful Father, for all Thy little children who dwell in darkness and in the shadow of the evil that is in the world; that it may please Thee to have pity on them, and to gather them, by the kindly hand of Thy true servants, into the light of the Christian fold, that they may sit at the feet of Jesus and learn of Him. So let Thy truth be manifest from generation to generation, and the whole family of mankind rejoice together in Thy mercy; through Jesus Christ the Saviour of the world. Amen.
+O GOD, our Father, in whose image all the children of men are made; Most heartily we ask You to bless the Sunday-schools of the Church, that the young may be instructed in Your Word, and that Your likeness may be renewed in their hearts, through the knowledge of Your dear Son, our Lord. Open the Holy Scripture, both to those who teach and to those who learn, that the difficulties of the letter may not hide the light of the Spirit. Make all the scholars ready to be taught and willing to obey, that they may find joy and peace in the way of Your commandments. Enrich the teachers with patient faithfulness and loving wisdom, and send out more laborers into this part of Your vineyard, that the young and tender plants may be nourished and trained to bring forth fruit to everlasting life. Finally we pray to You, O most merciful Father, for all Your little children who dwell in darkness and in the shadow of the evil that is in the world; that it may please You to have pity on them, and to gather them, by the kindly hand of Your true servants, into the light of the Christian fold, that they may sit at the feet of Jesus and learn of Him. So let Your truth be manifest from generation to generation, and the whole family of mankind rejoice together in Your mercy; through Jesus Christ the Savior of the world. Amen.
 
 #### For Schools and Colleges
 
-THOU only wise God, our Saviour, with whom are all the treasures of heavenly understanding; Illuminate all schools and colleges and universities with the light that cometh from above; that those who teach may be taught of Thee, and those who learn may be led by Thy Spirit; and grant that by the increase of knowledge Thy truth may be confirmed, and Thy glory manifested; through Jesus Christ, Thy Living Word. Amen.
+O ONLY wise God, our Savior, with whom are all the treasures of heavenly understanding; Illuminate all schools and colleges and universities with the light that comes from above; that those who teach may be taught of You, and those who learn may be led by Your Spirit; and grant that by the increase of knowledge Your truth may be confirmed, and Your glory manifested; through Jesus Christ, Your Living Word. Amen.
 
-O FATHER of Lights and Fountain of all knowledge; Bless, we beseech Thee, all teachers and institutions of learning, and grant that from them the light of truth may shine with growing brightness on all men, so that wisdom and knowledge may be the stability of our times, in Jesus Christ our Lord. Amen.
+O FATHER of Lights and Fountain of all knowledge; Bless, we pray, all teachers and institutions of learning, and grant that from them the light of truth may shine with growing brightness on all men, so that wisdom and knowledge may be the stability of our times, in Jesus Christ our Lord. Amen.
 
-ALMIGHTY and everlasting God, whose Son came into the world to destroy the power of darkness, and make us the children of light; Illumine our minds, we beseech Thee, with the full and abiding knowledge of Christ and His Gospel. Send Thy favour upon all efforts to train the young in intelligence, virtue, and piety. Bless all schools and colleges of sound learning and Christian education, and make them instruments in Thy hand of great good to the world. Endue the officers and teachers with a true sense of their high stewardship, and enlarge the hearts of the people to a loyal support of good institutions of learning, where the precepts of the Gospel are honoured as the supreme wisdom.
+ALMIGHTY and everlasting God, whose Son came into the world to destroy the power of darkness, and make us the children of light; Illumine our minds, we pray, with the full and abiding knowledge of Christ and His Gospel. Send Your favor upon all efforts to train the young in intelligence, virtue, and piety. Bless all schools and colleges of sound learning and Christian education, and make them instruments in Your hand of great good to the world. Endue the officers and teachers with a true sense of their high stewardship, and enlarge the hearts of the people to a loyal support of good institutions of learning, where the precepts of the Gospel are honored as the supreme wisdom.
 
-Enlighten the minds, purify the hearts and lives of the students, so that they may go forth a noble host, made ready and consecrated for large and fruitful work. Bless everywhere those who are striving for a Christian education amid the hindrances of poverty and friendlessness; and raise up friends, and strengthen wise agencies, to prosper their endeavours. Pour out Thy Spirit from on high, and sanctify all minds and hearts for Thine acceptable service here and Thy blessed kingdom hereafter. All which we ask in the Name of Him who is the Way, the Truth, and the Life, Jesus Christ our Lord. Amen.
+Enlighten the minds, purify the hearts and lives of the students, so that they may go forth a noble host, made ready and consecrated for large and fruitful work. Bless everywhere those who are striving for a Christian education amid the hindrances of poverty and friendlessness; and raise up friends, and strengthen wise agencies, to prosper their endeavors. Pour out Your Spirit from on high, and sanctify all minds and hearts for Your acceptable service here and Your blessed kingdom hereafter. All which we ask in the Name of Him who is the Way, the Truth, and the Life, Jesus Christ our Lord. Amen.
 
 #### A Prayer for a Service in a School or College
 
-O LORD our Heavenly Father, by whose Spirit man is taught knowledge, who givest wisdom to all that ask Thee; Grant Thy blessing, we beseech Thee, to all who serve Thee here, whether as teachers or learners, and help us in the work which Thou hast given us to do. Enable us to labour diligently and faithfully, not with eye-service, but in singleness of heart, remembering that without Thee we can do nothing, and that in Thy fear is the beginning of wisdom. May we set Thy holy will ever before us, and do that which is well-pleasing in Thy sight, that so our work here may count for good to others, both now and in the days to come. Open Thou our eyes to know Thy marvellous works, to search our own spirits, and to understand the wondrous things of Thy law. Of Thy great goodness pour into our hearts the excellent gift of charity, and grant that in meekness and truth and purity we may glorify Thee, the Father of lights, in the spirit of Thy dear Son, Jesus Christ our Lord. Amen.
+O LORD our Heavenly Father, by whose Spirit man is taught knowledge, who give wisdom to all who ask You; Grant Your blessing, we pray, to all who serve You here, whether as teachers or learners, and help us in the work which You have given us to do. Enable us to labor diligently and faithfully, not with eye-service, but in singleness of heart, remembering that without You we can do nothing, and that in Your fear is the beginning of wisdom. May we set Your holy will ever before us, and do that which is well-pleasing in Your sight, that so our work here may count for good to others, both now and in the days to come. Open our eyes to know Your marvelous works, to search our own spirits, and to understand the wondrous things of Your law. Of Your great goodness pour into our hearts the excellent gift of charity, and grant that in meekness and truth and purity we may glorify You, the Father of lights, in the spirit of Your dear Son, Jesus Christ our Lord. Amen.
 
 #### For All who are in Trouble
 
-O GOD, remember in Thy mercy the poor and needy, the widow and the fatherless, the stranger and the friendless, the sick and the dying [and any such known to ourselves, whom we name in our hearts before Thee]: relieve their needs, sanctify their sufferings, strengthen their weakness: and in due time bring them out of bondage into the glorious liberty of the sons of God. Amen.
+O GOD, remember in Your mercy the poor and needy, the widow and the fatherless, the stranger and the friendless, the sick and the dying [and any such known to ourselves, whom we name in our hearts before You]: relieve their needs, sanctify their sufferings, strengthen their weakness: and in due time bring them out of bondage into the glorious liberty of the sons of God. Amen.
 
-ALMIGHTY and everlasting God, the Comfort of the sad, the Strength of sufferers; Let the prayers of those that cry out of any tribulation come unto Thee; that all may rejoice to find Thy mercy present with them in their afflictions; through Christ our Lord. Amen.
+ALMIGHTY and everlasting God, the Comfort of the sad, the Strength of sufferers; Let the prayers of those who cry out of any tribulation come to You; that all may rejoice to find Your mercy present with them in their afflictions; through Christ our Lord. Amen.
 
-GOD of all comfort, we commend to Thy mercy all those upon whom any cross or tribulation is laid; the nations who are afflicted with famine, pestilence, or war; those of our brethren who suffer persecution for the sake of the Gospel; all such as are in danger by sea or land, and all persons oppressed with poverty, sickness, or any infirmity of body or sorrow of mind. We pray particularly for the sick and afflicted members of this church, and for those who desire to be remembered in our prayers [and for any such known to ourselves, whom we name in our hearts before Thee]. May it please Thee to show them Thy fatherly kindness, chastening them for their good: that their hearts may turn unto Thee, and receive perfect consolation, and deliverance from all their troubles, for Christ's sake. Amen.
+GOD of all comfort, we commend to Your mercy all those upon whom any cross or tribulation is laid; the nations who are afflicted with famine, pestilence, or war; those of our brethren who suffer persecution for the sake of the Gospel; all such as are in danger by sea or land, and all persons oppressed with poverty, sickness, or any infirmity of body or sorrow of mind. We pray particularly for the sick and afflicted members of this church, and for those who desire to be remembered in our prayers [and for any such known to ourselves, whom we name in our hearts before You]. May it please You to show them Your fatherly kindness, chastening them for their good: that their hearts may turn to You, and receive perfect consolation, and deliverance from all their troubles, for Christ's sake. Amen.
 
-BE merciful, O God, unto all who need Thy mercy, and let the Angel of Thy Presence save the afflicted: Be Thou the Strength of the weary, the Comfort of the sorrowful, the Friend of the desolate, the Light of the wandering, the Hope of the dying, the Saviour of the lost, for Jesus' sake. Amen.
+BE merciful, O God, to all who need Your mercy, and let the Angel of Your Presence save the afflicted: Be the Strength of the weary, the Comfort of the sorrowful, the Friend of the desolate, the Light of the wandering, the Hope of the dying, the Savior of the lost, for Jesus' sake. Amen.
 
-WE remember before Thee, O Lord, our brethren who are tried with sickness: entreating Thee to increase their faith and patience, to restore them to health, if it be Thy will, and to give them a happy issue out of all their troubles. Have pity on all widows and orphans; succour all who are in danger by sea and land, all prisoners and captives, and all who are oppressed with labour and toil. Have mercy on those who are tempted, and on those who are in darkness and perplexity, and strengthen them with Thy Holy Spirit. Be present with those who are dying, and grant that they may depart in peace, fearing no evil, and live before Thee in Thy heavenly kingdom; through Christ our Lord. Amen.
+WE remember before You, O Lord, our brethren who are tried with sickness: entreating You to increase their faith and patience, to restore them to health, if it is Your will, and to give them a happy issue out of all their troubles. Have pity on all widows and orphans; help all who are in danger by sea and land, all prisoners and captives, and all who are oppressed with labor and toil. Have mercy on those who are tempted, and on those who are in darkness and perplexity, and strengthen them with Your Holy Spirit. Be present with those who are dying, and grant that they may depart in peace, fearing no evil, and live before You in Your heavenly kingdom; through Christ our Lord. Amen.
 
 #### For Kindred and Friends
 
-O LORD, our heavenly Father, bless and keep, we pray Thee, our kindred, friends, and benefactors, and graciously watch between them and us while we are absent one from another, that in due time we may meet again to praise Thee, and hereafter dwell together in heavenly mansions; through Christ our Lord. Amen.
+O LORD, our heavenly Father, bless and keep, we pray You, our kindred, friends, and benefactors, and graciously watch between them and us while we are absent one from another, that in due time we may meet again to praise You, and hereafter dwell together in heavenly mansions; through Christ our Lord. Amen.
 
-O THOU who art the God of all the families of the earth; We beseech Thee to bless all our friends and kindred, and to grant that we may ever be knit together in the bonds of mutual love, and, above all, that we may be members together of the mystical body of Christ. Amen.
+O YOU who are the God of all the families of the earth; We ask You to bless all our friends and kindred, and to grant that we may ever be knit together in the bonds of mutual love, and, above all, that we may be members together of the mystical body of Christ. Amen.
 
-O GOD, who by the grace of the Holy Ghost hast poured the gifts of love into the hearts of Thy faithful people; Grant unto our friends and kindred, for whom we implore Thy mercy, health of body and soul; that they may love Thee with all their strength, and with perfect affection fulfil Thy pleasure; through Jesus Christ our Lord. Amen.
+O GOD, who by the grace of the Holy Spirit have poured the gifts of love into the hearts of Your faithful people; Grant to our friends and kindred, for whom we implore Your mercy, health of body and soul; that they may love You with all their strength, and with perfect affection fulfill Your pleasure; through Jesus Christ our Lord. Amen.
 
-ALMIGHTY God, we commend to Thee our families and our children. Dwell in our homes, we beseech Thee; protect our dwellings from all evil, both outwardly and inwardly, and fill them with peace and holiness. We pray for all who are dear to us, that they may be delivered from all the dangers of this present life, and kept by Thy grace unto salvation. And O, most loving Father, we remember with undying affection those whom death has taken, and who sleep in Jesus. United in one household of faith and love, may we live in the blessed hope, that when the day dawns and the shadows flee away, we shall meet with them and all Thy redeemed, in Thy presence, where there is fulness of joy; through Jesus Christ our Lord. Amen.
+ALMIGHTY God, we commend to You our families and our children. Dwell in our homes, we pray; protect our dwellings from all evil, both outwardly and inwardly, and fill them with peace and holiness. We pray for all who are dear to us, that they may be delivered from all the dangers of this present life, and kept by Your grace to salvation. And O, most loving Father, we remember with undying affection those whom death has taken, and who sleep in Jesus. United in one household of faith and love, may we live in the blessed hope, that when the day dawns and the shadows flee away, we shall meet with them and all Your redeemed, in Your presence, where there is fullness of joy; through Jesus Christ our Lord. Amen.
 
 #### For a Sick Person
 
-O LORD our God, who art the Physician of our souls and of our bodies; who chastenest and again Thou healest; We beseech Thee mercifully to regard Thy servant, [N.,] for whom we pray that his life may be spared, and his strength restored. O Thou, who didst give Thy Son to bear our sicknesses and carry our sorrows; for His sake deal compassionately with this Thy servant, and send upon him Thy healing power and virtue, both in his body and in his soul and spirit. Into Thy hands we commit him; unto Thy gracious mercy and protection we commend him, as unto a faithful and merciful Saviour. Amen.
+O LORD our God, who are the Physician of our souls and of our bodies; who chasten and heal again; We ask You mercifully to regard Your servant, [N.,] for whom we pray that his life may be spared, and his strength restored. O You, who gave Your Son to bear our sicknesses and carry our sorrows; for His sake deal compassionately with this Your servant, and send upon him Your healing power and virtue, both in his body and in his soul and spirit. Into Your hands we commit him; to Your gracious mercy and protection we commend him, as to a faithful and merciful Savior. Amen.
 
-MOST wise and loving Father, look down from heaven, behold, visit, and relieve this Thy servant. Look upon him with the eyes of Thy mercy, give him comfort and sure confidence in Thee, defend him from the danger of the enemy, and keep him in perpetual peace and safety; through Jesus Christ our Lord. Amen.
+MOST wise and loving Father, look down from heaven, behold, visit, and relieve this Your servant. Look upon him with the eyes of Your mercy, give him comfort and sure confidence in You, defend him from the danger of the enemy, and keep him in perpetual peace and safety; through Jesus Christ our Lord. Amen.
 
 #### For a Sick Child
 
-O ALMIGHTY God, our Father in heaven, have pity upon the young child, [N.,] now lying upon the bed of sickness. Spare the life which Thou hast given, and relieve the pains of the helpless: direct the ministry of healing for his recovery, and revive his spirit, that the frailty of the body may pass away: renew his strength both inwardly and outwardly, and grant unto him many years on earth, to serve Thee faithfully by doing good in his generation. Nevertheless, O Father, whatsoever Thy will may be concerning this child, we know that he is in Thy keeping, and we pray that his soul may be Thine, for ever and ever, in Jesus Christ our Lord. Amen.
+O ALMIGHTY God, our Father in heaven, have pity upon the young child, [N.,] now lying upon the bed of sickness. Spare the life which You have given, and relieve the pains of the helpless: direct the ministry of healing for his recovery, and revive his spirit, that the frailty of the body may pass away: renew his strength both inwardly and outwardly, and grant to him many years on earth, to serve You faithfully by doing good in his generation. Nevertheless, O Father, whatever Your will may be concerning this child, we know that he is in Your keeping, and we pray that his soul may be Yours, for ever and ever, in Jesus Christ our Lord. Amen.
 
 #### For One Who is near to Death
 
-ETERNAL God, to whom belong the issues of life and death; We implore Thy mercy for Thy servant, [N.,] whose time of departure seemeth to be near at hand. With Thee there is nothing impossible, and Thou canst raise him up even yet, and prolong his earthly pilgrimage, if it be Thy will: but if not, O God, be gracious unto him, and prepare his heart to return to Thee. Give unto him sincere repentance, true faith, abundant forgiveness, and a heavenly hope; suffer him not, in the last hour, for any pain or fear of death, to fall away from Thee; but let Thine everlasting arms be underneath him, and grant him a peaceful departure, and a happy entrance into eternal rest; through the merits and intercession of Jesus Christ our Saviour. Amen.
+ETERNAL God, to whom belong the issues of life and death; We implore Your mercy for Your servant, [N.,] whose time of departure seems to be near at hand. With You there is nothing impossible, and You can raise him up even yet, and prolong his earthly pilgrimage, if it is Your will: but if not, O God, be gracious to him, and prepare his heart to return to You. Give to him sincere repentance, true faith, abundant forgiveness, and a heavenly hope; do not let him, in the last hour, for any pain or fear of death, fall away from You; but let Your everlasting arms be underneath him, and grant him a peaceful departure, and a happy entrance into eternal rest; through the merits and intercession of Jesus Christ our Savior. Amen.
 
 #### For One Restored from Sickness
 
-O GOD, who art the Giver of life, of health, and of safety; We bless Thy Name, that Thou hast been pleased to deliver from his bodily sickness Thy servant, who now desireth to return thanks unto Thee, in the presence of Thy people. Gracious art Thou, O Lord, and full of compassion to the children of men. May his heart be duly impressed with a sense of Thy merciful goodness, and may he devote the residue of his days to an humble, holy, and obedient walking before Thee; through Jesus Christ our Lord. Amen.
+O GOD, who are the Giver of life, of health, and of safety; We bless Your Name, that You have been pleased to deliver from his bodily sickness Your servant, who now desires to return thanks to You, in the presence of Your people. Gracious are You, O Lord, and full of compassion to the children of men. May his heart be duly impressed with a sense of Your merciful goodness, and may he devote the rest of his days to a humble, holy, and obedient walking before You; through Jesus Christ our Lord. Amen.
 
 #### For One Going a Journey
 
-LORD God omnipotent, who reignest in the heavens and on the earth; We implore Thy guidance and protection for Thy servant, [N.,] now setting forth upon his journey. Against all perils be Thou his strong defense, and in far regions be Thou his faithful friend; keep him in health and heart; prosper the ends of his adventure, and make the way of his going and of his returning both safe and happy; and so direct the steps of all Thy pilgrims through this world, that we shall finally arrive in the better country, even the heavenly, with Jesus Christ our Lord. Amen.
+LORD God omnipotent, who reign in the heavens and on the earth; We implore Your guidance and protection for Your servant, [N.,] now setting forth upon his journey. Against all perils be his strong defense, and in far regions be his faithful friend; keep him in health and heart; prosper the ends of his adventure, and make the way of his going and of his returning both safe and happy; and so direct the steps of all Your pilgrims through this world, that we shall finally arrive in the better country, even the heavenly, with Jesus Christ our Lord. Amen.
 
 #### For a Person, or Persons, Going to Sea
 
-O ETERNAL Lord God, who alone spreadest out the heavens, and rulest the raging of the sea; We commend to Thy almighty protection Thy servant, for whose preservation on the great deep our prayers are desired. Guard him, we beseech Thee, from the dangers of the sea, from sickness, from the violence of enemies, from every evil; and conduct him in safety to the haven where he would be, with a grateful sense of Thy mercies; through Jesus Christ our Lord. Amen.
+O ETERNAL Lord God, who alone spread out the heavens, and rule the raging of the sea; We commend to Your almighty protection Your servant, for whose preservation on the great deep our prayers are desired. Guard him, we pray, from the dangers of the sea, from sickness, from the violence of enemies, from every evil; and conduct him in safety to the haven where he would be, with a grateful sense of Your mercies; through Jesus Christ our Lord. Amen.
 
 #### For Our Enemies
 
-LORD Jesus Christ, who hast commanded us not to return evil for evil, but to pray for those who hate us; Enable us by Thy blessed example and Thy loving Spirit, to offer a true prayer for all our enemies, [and especially for those persons known to Thee, who have wrought us harm.] If in anything we have given just cause of offense, teach us to feel, and to confess, and to amend our fault, that a way of reconciliation may be found. Let not their anger burn against us, but deliver them and us from the power of hatred, so that we may be as ready to grant forgiveness as they to ask it, and the peace of God may rule in all our hearts, both now and evermore. Amen.
+LORD Jesus Christ, who have commanded us not to return evil for evil, but to pray for those who hate us; Enable us by Your blessed example and Your loving Spirit, to offer a true prayer for all our enemies, [and especially for those persons known to You, who have done us harm.] If in anything we have given just cause of offense, teach us to feel, and to confess, and to amend our fault, that a way of reconciliation may be found. Do not let their anger burn against us, but deliver them and us from the power of hatred, so that we may be as ready to grant forgiveness as they to ask it, and the peace of God may rule in all our hearts, both now and evermore. Amen.
 
 #### For Benefactors
 
-ALMIGHTY God, by whose good Spirit the minds of men are inclined to deeds of love and kindness; We thank Thee for all the help and comfort which we have received from friends and benefactors, [and especially from those whose bounty we now remember and record.] As they have been mindful of us, so be Thou ever mindful of them: as they have freely given, so may they freely receive at Thy hands abundant mercies and blessings. Do Thou have regard unto all their necessities, and reward all their good deeds, that in this life the comfort of grateful thoughts may follow them, and in the life to come Thy love may welcome them to an everlasting habitation; through Jesus Christ our Lord. Amen.
+ALMIGHTY God, by whose good Spirit the minds of men are inclined to deeds of love and kindness; We thank You for all the help and comfort which we have received from friends and benefactors, [and especially from those whose bounty we now remember and record.] As they have been mindful of us, so be ever mindful of them: as they have freely given, so may they freely receive at Your hands abundant mercies and blessings. Have regard to all their necessities, and reward all their good deeds, that in this life the comfort of grateful thoughts may follow them, and in the life to come Your love may welcome them to an everlasting habitation; through Jesus Christ our Lord. Amen.
 
 #### For Distant Friends
 
-OUR heavenly Father, who hast bestowed upon us the dear comfort of earthly friends; Look down in mercy upon those whom we love, and who love us, while they are far away, [and especially upon those for whom we ask Thy favour.] Protect and keep them from all danger in body and in soul: prosper and bless them in all things good: suffer them never to be lonely, desolate, or afraid: let no shadow come between them and us to divide our hearts: but in Thine own good time may we renew sweet fellowship together on earth, and at last be united in the felicity of heaven; through Jesus Christ our Lord. Amen.
+OUR heavenly Father, who have bestowed upon us the dear comfort of earthly friends; Look down in mercy upon those whom we love, and who love us, while they are far away, [and especially upon those for whom we ask Your favor.] Protect and keep them from all danger in body and in soul: prosper and bless them in all things good: never let them be lonely, desolate, or afraid: let no shadow come between them and us to divide our hearts: but in Your own good time may we renew sweet fellowship together on earth, and at last be united in the felicity of heaven; through Jesus Christ our Lord. Amen.
 
 #### A Thanksgiving for a Prayer Granted
 
-OUR heavenly Father, who hast mercifully inclined Thine ear unto our supplications, and granted our heart's desire in [*here let the special mercy be named*]; Let this new proof and token of Thy favour, we beseech Thee, more closely bind our hearts to Thee in grateful love; that the blessing which Thou hast bestowed may never be turned from the good purpose of Thy giving; that the lives to which Thou hast been gracious may be consecrated to Thy glory; and that our thankfulness may not be in word only, but in deed and in truth; through our Lord Jesus Christ. Amen.
+OUR heavenly Father, who have mercifully inclined Your ear to our supplications, and granted our heart's desire in [*here let the special mercy be named*]; Let this new proof and token of Your favor, we pray, more closely bind our hearts to You in grateful love; that the blessing which You have bestowed may never be turned from the good purpose of Your giving; that the lives to which You have been gracious may be consecrated to Your glory; and that our thankfulness may not be in word only, but in deed and in truth; through our Lord Jesus Christ. Amen.
 
 ### IV. Brief Petitions
 
 #### For the Spirit of Prayer
 
-O LORD our God, who alone foreseest and bestowest things needful for our salvation; Do Thou bestow on our souls the hearty desire of imploring Thy mercy, and graciously vouchsafe us what will be for our good; through Jesus Christ our Lord. Amen.
+O LORD our God, who alone foresee and bestow things needful for our salvation; Bestow on our souls the hearty desire of imploring Your mercy, and graciously grant us what will be for our good; through Jesus Christ our Lord. Amen.
 
-O LORD, grant unto us an unceasing perseverance in praying unto Thee; that as Thou dost not forsake us when we are bowed down in tribulation, so Thou mayest cherish us with more abundant grace when we continually beseech Thy Majesty; through Jesus Christ our Lord. Amen.
+O LORD, grant to us an unceasing perseverance in praying to You; that as You do not forsake us when we are bowed down in tribulation, so You may cherish us with more abundant grace when we continually call upon Your Majesty; through Jesus Christ our Lord. Amen.
 
-LET the prayers of Thy suppliants, O Lord, come up to the ears of Thy mercy; and that we may obtain what we ask, make us ever to ask what pleases Thee; through Jesus Christ our Lord. Amen.
+LET the prayers of Your suppliants, O Lord, come up to the ears of Your mercy; and that we may obtain what we ask, make us ever to ask what pleases You; through Jesus Christ our Lord. Amen.
 
-O HOLY Spirit the Comforter, who, with the Father, and the Son, abidest One God in Trinity; Descend this day into our hearts, that while Thou makest intercession for us, we may with full confidence call upon our Father. Amen.
+O HOLY Spirit the Comforter, who, with the Father, and the Son, abide One God in Trinity; Descend this day into our hearts, that while You make intercession for us, we may with full confidence call upon our Father. Amen.
 
 #### For Penitence
 
-O LORD God, who despisest not a contrite heart, and forgettest the sin and wickedness of a sinner, in whatsoever hour he doth mourn and lament his old manner of living; Grant unto us, we beseech Thee, true contrition of heart, that we may vehemently despise our sinful life past, and wholly be converted unto Thee, by our Saviour and Lord Jesus Christ. Amen.
+O LORD God, who do not despise a contrite heart, and forget the sin and wickedness of a sinner, in whatever hour he mourns and laments his old manner of living; Grant to us, we pray, true contrition of heart, that we may vehemently despise our sinful life past, and wholly be converted to You, by our Savior and Lord Jesus Christ. Amen.
 
-O GOD, who art rich in forgiveness; Grant that we may always hold fast the good things which we receive from Thee, and as often as we fall into sins, may be raised up by repentance; through Thy mercy. Amen.
+O GOD, who are rich in forgiveness; Grant that we may always hold fast the good things which we receive from You, and as often as we fall into sins, may be raised up by repentance; through Your mercy. Amen.
 
-ALMIGHTY and everlasting God, who hatest nothing that Thou hast made, and dost forgive the sins of all them that are penitent; Create in us new and contrite hearts, that we, duly lamenting our sins, and acknowledging our wretchedness, may obtain of Thee perfect remission and forgiveness; through Jesus Christ our Lord. Amen.
+ALMIGHTY and everlasting God, who hate nothing that You have made, and forgive the sins of all those who are penitent; Create in us new and contrite hearts, that we, duly lamenting our sins, and acknowledging our wretchedness, may obtain of You perfect remission and forgiveness; through Jesus Christ our Lord. Amen.
 
 #### For Forgiveness
 
-HAVE compassion, O God, upon Thy servants; seeing that our hearts are grieved for having offended against Thee, and our own consciences condemn us, and we have no refuge save only in Thy mercy, which Thou hast revealed through Jesus Christ our Lord. Amen.
+HAVE compassion, O God, upon Your servants; seeing that our hearts are grieved for having offended against You, and our own consciences condemn us, and we have no refuge save only in Your mercy, which You have revealed through Jesus Christ our Lord. Amen.
 
-O MERCIFUL God, the Fountain of all goodness, who knowest the thoughts of our hearts; We confess unto Thee that we have sinned against Thee, and done evil in Thy sight. Wash us, we beseech Thee, from the stains of our past sins, and give us grace and power to put away all hurtful things; that being delivered from the bondage of sin, we may walk in the path of Thy commandments; through Jesus Christ our Lord. Amen.
+O MERCIFUL God, the Fountain of all goodness, who know the thoughts of our hearts; We confess to You that we have sinned against You, and done evil in Your sight. Wash us, we pray, from the stains of our past sins, and give us grace and power to put away all hurtful things; that being delivered from the bondage of sin, we may walk in the path of Your commandments; through Jesus Christ our Lord. Amen.
 
-LET Thy mercy come upon us, O God, in great fulness, even as our sins against Thee have been many; and may Thy forgiving love overflow all our transgressions, that they may be covered and blotted out, and we may be purified unto newness of life; for the sake of Jesus Christ, who loved us, and died for us. Amen.
+LET Your mercy come upon us, O God, in great fullness, even as our sins against You have been many; and may Your forgiving love overflow all our transgressions, that they may be covered and blotted out, and we may be purified to newness of life; for the sake of Jesus Christ, who loved us, and died for us. Amen.
 
-FORGIVE, O Lord, we beseech Thee, all that we have done amiss, all that we have spoken falsely or in anger, and all that we have thought or purposed against Thy will. Forgive our ignorant and hasty faults, our wilful and deliberate offenses, and all our sins of slothfulness and neglect. Forgive us freely; forgive us graciously; forgive us entirely; in the Name of Jesus Christ. Amen.
+FORGIVE, O Lord, we pray, all that we have done amiss, all that we have spoken falsely or in anger, and all that we have thought or purposed against Your will. Forgive our ignorant and hasty faults, our wilful and deliberate offenses, and all our sins of slothfulness and neglect. Forgive us freely; forgive us graciously; forgive us entirely; in the Name of Jesus Christ. Amen.
 
 #### For Faith
 
-O ALMIGHTY and everlasting God, who not only givest every good and perfect gift, but also increasest those gifts Thou hast given; We most humbly beseech Thee to increase in us the gift of faith, that we may truly believe in Thee, and in Thy promises; and that neither by our negligence or infirmity of the flesh, nor by grievousness of temptation, nor by the subtle crafts and assaults of the devil, we be driven from faith in our Saviour and Lord Jesus Christ. Amen.
+O ALMIGHTY and everlasting God, who not only give every good and perfect gift, but also increase those gifts You have given; We most humbly ask You to increase in us the gift of faith, that we may truly believe in You, and in Your promises; and that neither by our negligence or infirmity of the flesh, nor by grievousness of temptation, nor by the subtle crafts and assaults of the devil, we may be driven from faith in our Savior and Lord Jesus Christ. Amen.
 
-GRANT us, O Lord, we pray Thee, to trust in Thee with all our heart; seeing that as Thou dost always resist the proud who confide in their own strength, so Thou dost not forsake those who make their boast of Thy mercy; through Jesus Christ our Lord. Amen.
+GRANT us, O Lord, we pray, to trust in You with all our heart; seeing that as You always resist the proud who confide in their own strength, so You do not forsake those who make their boast of Your mercy; through Jesus Christ our Lord. Amen.
 
-LORD Jesus Christ, very God and very Man, who changest not, but art holy in all Thy works; Turn away from us the unbelief of a doubtful mind, and fill our hearts with the gifts of Thy grace; that we may believe and know Thee to be very God, who by Thy mighty works art proved to be the Saviour of all. Amen.
+LORD Jesus Christ, very God and very Man, who do not change, but are holy in all Your works; Turn away from us the unbelief of a doubtful mind, and fill our hearts with the gifts of Your grace; that we may believe and know You to be very God, who by Your mighty works are proved to be the Savior of all. Amen.
 
 #### For Hope
 
-IT is good for us to hold fast by Thee, O Lord; and do Thou so increase in us the desire of good, that the hope which joins us to Thee may not be shaken by any wavering of faith, but may endure in steadfastness of love. Amen.
+IT is good for us to hold fast by You, O Lord; and so increase in us the desire of good, that the hope which joins us to You may not be shaken by any wavering of faith, but may endure in steadfastness of love. Amen.
 
-O GOD, who by Thy Word hast given unto us exceeding great and precious promises; Encourage us by Thy Spirit to a confident expectation of all good things from Thee; that we may abide and labour in the cheerfulness of a godly hope. Amen.
+O GOD, who by Your Word have given to us exceeding great and precious promises; Encourage us by Your Spirit to a confident expectation of all good things from You; that we may abide and labor in the cheerfulness of a godly hope. Amen.
 
 #### For Love
 
-O GOD, who hast taught us to keep all Thy heavenly commandments by loving Thee and our neighbour; Grant us the spirit of peace and grace, that Thy universal family may be devoted to Thee with their whole heart, and united to each other with a perfect charity; through Jesus Christ our Lord. Amen.
+O GOD, who have taught us to keep all Your heavenly commandments by loving You and our neighbor; Grant us the spirit of peace and grace, that Your universal family may be devoted to You with their whole heart, and united to each other with a perfect charity; through Jesus Christ our Lord. Amen.
 
-O GOD the Father almighty, good beyond all that is good, fair beyond all that is fair, in whom is calmness, peace, and concord; Do Thou remove the dissensions which divide us from each other, and bring us back into an unity of love, which may bear some likeness to Thy nature. And grant that, being made one in Thee, who art above all, and through all, and in all, we may be kept in the unity of Thy Spirit in the bond of peace; through that peace of Thine which maketh all things peaceful, and through the grace, mercy, and tenderness of Thine only-begotten Son. Amen.
+O GOD the Father almighty, good beyond all that is good, fair beyond all that is fair, in whom is calmness, peace, and concord; Remove the dissensions which divide us from each other, and bring us back into a unity of love, which may bear some likeness to Your nature. And grant that, being made one in You, who are above all, and through all, and in all, we may be kept in the unity of Your Spirit in the bond of peace; through that peace of Yours which makes all things peaceful, and through the grace, mercy, and tenderness of Your only-begotten Son. Amen.
 
-O GOD of love, Giver of concord, who hast sent us a new commandment, through Thine only-begotten Son, that we should love one another, even as Thou didst love us, the unworthy and the wandering, and gavest Thy Son for our life and salvation; We pray Thee, Lord, give to us Thy servants, in all time of our life on the earth, (but especially and pre-eminently now,) a mind forgetful of past ill-will, a pure conscience and sincere thoughts, and a heart to love our brethren. Amen.
+O GOD of love, Giver of concord, who have sent us a new commandment, through Your only-begotten Son, that we should love one another, even as You loved us, the unworthy and the wandering, and gave Your Son for our life and salvation; We pray You, Lord, give to us Your servants, in all time of our life on the earth, (but especially and pre-eminently now,) a mind forgetful of past ill-will, a pure conscience and sincere thoughts, and a heart to love our brethren. Amen.
 
 #### For Humility and Patience
 
-O GOD, who resistest the proud, and givest grace to the humble; Grant to us that true humility, whereof Thine only-begotten Son hath given in Himself an example to the faithful; that by our foolish pride we may never provoke Thine indignation, but receive the gifts of Thy grace in lowliness; through Jesus Christ our Lord. Amen.
+O GOD, who resist the proud, and give grace to the humble; Grant to us that true humility, of which Your only-begotten Son has given in Himself an example to the faithful; that by our foolish pride we may never provoke Your indignation, but receive the gifts of Your grace in lowliness; through Jesus Christ our Lord. Amen.
 
-OUR Father in heaven, who chastenest every son whom Thou receivest; Grant unto us that with a meek and lowly heart we may endure Thy fatherly corrections, and submit ourselves quietly to Thy wise discipline: so that we may learn obedience by the things which we suffer, and have a place among those who through faith and patience inherit Thy promises. Amen.
+OUR Father in heaven, who chasten every son whom You receive; Grant to us that with a meek and lowly heart we may endure Your fatherly corrections, and submit ourselves quietly to Your wise discipline: so that we may learn obedience by the things which we suffer, and have a place among those who through faith and patience inherit Your promises. Amen.
 
-ALMIGHTY God, who dost suffer Thy children to be sorely tried and tempted; Grant that we may bear patiently the troubles of this mortal life, neither rebelling against Thee, nor turning away from Thine instruction; so that in the end we may be made wise and humble, and obtain the blessing of those who, with patience and fortitude, wait upon the Lord. Amen.
+ALMIGHTY God, who allow Your children to be sorely tried and tempted; Grant that we may bear patiently the troubles of this mortal life, neither rebelling against You, nor turning away from Your instruction; so that in the end we may be made wise and humble, and obtain the blessing of those who, with patience and fortitude, wait upon the Lord. Amen.
 
 #### For Perseverance
 
-O GOD, who in Thy loving-kindness dost both begin and finish all good things; Grant that as we glory in the beginnings of Thy grace, so we may rejoice in its completion; through Jesus Christ our Lord. Amen.
+O GOD, who in Your loving-kindness both begin and finish all good things; Grant that as we glory in the beginnings of Your grace, so we may rejoice in its completion; through Jesus Christ our Lord. Amen.
 
-O GOD, who hast willed that the gate of mercy should stand open to the faithful; Look on us, and have mercy upon us; that we, who by Thy grace are following the path of Thy will, may never turn aside from the ways of life; through Jesus Christ our Lord. Amen.
+O GOD, who have willed that the gate of mercy should stand open to the faithful; Look on us, and have mercy upon us; that we, who by Your grace are following the path of Your will, may never turn aside from the ways of life; through Jesus Christ our Lord. Amen.
 
-LOOK upon us and hear us, O Lord our God; and assist those endeavours to please Thee which Thou Thyself hast granted to us; as Thou hast given the first act of will, so give the completion of the work; grant that we may be able to finish what Thou hast granted us to wish to begin. Amen.
+LOOK upon us and hear us, O Lord our God; and assist those endeavors to please You which You Yourself have granted to us; as You have given the first act of will, so give the completion of the work; grant that we may be able to finish what You have granted us to wish to begin. Amen.
 
 #### For Purity
 
-O GOD, whose blessed Son was manifested that He might destroy the works of the devil, and make us the sons of God and heirs of eternal life; Grant us, we beseech Thee, that having this hope we may purify ourselves, even as He is pure; that when He shall appear again with power and great glory, we may be made like unto Him in His eternal and glorious kingdom. Amen.
+O GOD, whose blessed Son was manifested that He might destroy the works of the devil, and make us the sons of God and heirs of eternal life; Grant us, we pray, that having this hope we may purify ourselves, even as He is pure; that when He shall appear again with power and great glory, we may be made like to Him in His eternal and glorious kingdom. Amen.
 
-IN Thy mercy and majesty, O Lord, behold Thy household, that they may be neither stained with vices of their own, nor held in bondage by the sins of others; but that being ever freed and cleansed from both, they may do service unto Thee; through Jesus Christ our Lord. Amen.
+IN Your mercy and majesty, O Lord, behold Your household, that they may be neither stained with vices of their own, nor held in bondage by the sins of others; but that being ever freed and cleansed from both, they may do service to You; through Jesus Christ our Lord. Amen.
 
 #### For Temperance
 
-ALMIGHTY God, gracious Father of men and angels, who openest Thine hand and fillest all things with plenty; Teach us to use the gifts of Thy providence soberly and temperately, that our temptations may not be too strong for us, nor our affections sensual and unholy. Grant, O Lord, that the blessings which Thou givest us may neither minister to sin nor to sickness, but to health and holiness and thanksgiving; that in the strength of Thy provision we may faithfully and diligently serve Thee, may worthily feast at Thy Table here, and be accounted worthy to sit down at Thy Table hereafter; through Jesus Christ our Lord. Amen.
+ALMIGHTY God, gracious Father of men and angels, who open Your hand and fill all things with plenty; Teach us to use the gifts of Your providence soberly and temperately, that our temptations may not be too strong for us, nor our affections sensual and unholy. Grant, O Lord, that the blessings which You give us may neither minister to sin nor to sickness, but to health and holiness and thanksgiving; that in the strength of Your provision we may faithfully and diligently serve You, may worthily feast at Your Table here, and be accounted worthy to sit down at Your Table hereafter; through Jesus Christ our Lord. Amen.
 
-MOST merciful Father, who desirest not the death of a sinner, but rather that he should turn from his wicked ways and live; Have pity, we beseech Thee, upon all miserable captives who are in bondage to drunkenness. Deliver them from the tyranny of that blind and wicked spirit, whereby their lives are confused and defiled, and they are driven into all manner of shameful deeds. Strengthen them to resist their besetting sin, and lead them into the liberty and purity of the sons of God. Direct and bless Thy servants who fight against the cruel dominion of strong drink, according to the precepts of Thy holy religion; and grant that all who minister to intemperance, and all who are entangled in its net, may be converted to a godly, righteous, and sober life; through the grace of our Lord Jesus Christ. Amen.
+MOST merciful Father, who desire not the death of a sinner, but rather that he should turn from his wicked ways and live; Have pity, we pray, upon all miserable captives who are in bondage to drunkenness. Deliver them from the tyranny of that blind and wicked spirit, by which their lives are confused and defiled, and they are driven into all manner of shameful deeds. Strengthen them to resist their besetting sin, and lead them into the liberty and purity of the sons of God. Direct and bless Your servants who fight against the cruel dominion of strong drink, according to the precepts of Your holy religion; and grant that all who minister to intemperance, and all who are entangled in its net, may be converted to a godly, righteous, and sober life; through the grace of our Lord Jesus Christ. Amen.
 
 #### For a Heavenly Mind
 
-O ALMIGHTY God, who alone canst order the unruly wills and affections of sinful men; Grant unto Thy people that they may love the thing which Thou commandest, and desire that which Thou dost promise; that so, among the sundry and manifold changes of the world, our hearts may surely there be fixed, where true joys are to be found; through Jesus Christ our Lord. Amen.
+O ALMIGHTY God, who alone can order the unruly wills and affections of sinful men; Grant to Your people that they may love the thing which You command, and desire that which You promise; that so, among the sundry and manifold changes of the world, our hearts may surely there be fixed, where true joys are to be found; through Jesus Christ our Lord. Amen.
 
-GRANT us, O Lord, we beseech Thee, always to seek Thy kingdom and righteousness; and of whatsoever Thou seest us to stand in need, mercifully grant us an abundant portion; through Jesus Christ our Lord. Amen.
+GRANT us, O Lord, we pray, always to seek Your kingdom and righteousness; and of whatever You see we stand in need, mercifully grant us an abundant portion; through Jesus Christ our Lord. Amen.
 
-ALMIGHTY and eternal God, who dost bid us walk as pilgrims and strangers in this passing world, seeking that abiding city which Thou hast prepared for us in heaven; We pray Thee so to govern our hearts by Thy Holy Spirit, that we, avoiding all fleshly lusts which war against the soul, and quietly obedient to the rule which Thou hast set over us, may show forth Thy glory before the world by our good works; for Jesus Christ's sake. Amen.
+ALMIGHTY and eternal God, who bid us walk as pilgrims and strangers in this passing world, seeking that abiding city which You have prepared for us in heaven; We pray You so to govern our hearts by Your Holy Spirit, that we, avoiding all fleshly lusts which war against the soul, and quietly obedient to the rule which You have set over us, may show forth Your glory before the world by our good works; for Jesus Christ's sake. Amen.
 
-O LORD, whose favour is life, and in whose presence there is fulness of peace and joy; Vouchsafe unto us, we beseech Thee, such an abiding sense of the reality and glory of those things which Thou hast prepared for them that love Thee, as may serve to raise us above the vanity of this present world, both in its pleasures and in its necessary trials and pains; so that under Thy guidance and help all things here shall work together for our everlasting salvation; through Jesus Christ our Lord. Amen.
+O LORD, whose favor is life, and in whose presence there is fullness of peace and joy; Grant to us, we pray, such an abiding sense of the reality and glory of those things which You have prepared for those who love You, as may serve to raise us above the vanity of this present world, both in its pleasures and in its necessary trials and pains; so that under Your guidance and help all things here shall work together for our everlasting salvation; through Jesus Christ our Lord. Amen.
 
 #### For Guidance
 
-O THOU great Shepherd of Israel, who, by Thine outstretched arm, didst bring Thy people of old out of the land of Egypt and the house of bondage, guiding them safely through the wilderness to the promised land; We pray Thee to deliver us from the bondage and slavery of our sins, and so to lead us through the wilderness of this world, feeding us with bread from heaven, and with water out of the smitten rock, and upholding us amid the swellings of Jordan, that we may enter at last into that rest which remaineth for Thy faithful people. Amen.
+O GREAT Shepherd of Israel, who, by Your outstretched arm, brought Your people of old out of the land of Egypt and the house of bondage, guiding them safely through the wilderness to the promised land; We pray You to deliver us from the bondage and slavery of our sins, and so to lead us through the wilderness of this world, feeding us with bread from heaven, and with water out of the smitten rock, and upholding us amid the swellings of Jordan, that we may enter at last into that rest which remains for Your faithful people. Amen.
 
-JESUS, our Master, do Thou meet us while we walk in the way, and long to reach the better country; so that following Thy light, we may keep the path of righteousness, and never wander into the darkness of this world's night, while Thou, who art the Way, the Truth, and the Life, art guiding us. Amen.
+JESUS, our Master, meet us while we walk in the way, and long to reach the better country; so that following Your light, we may keep the path of righteousness, and never wander into the darkness of this world's night, while You, who are the Way, the Truth, and the Life, are guiding us. Amen.
 
 #### For Protection
 
-ALMIGHTY God, who seest that we have no power of ourselves to help ourselves; Keep us both outwardly in our bodies and inwardly in our souls, that we may be defended from all adversities which may happen to the body, and from all evil thoughts which may assault and hurt the soul; through Jesus Christ our Lord. Amen.
+ALMIGHTY God, who see that we have no power of ourselves to help ourselves; Keep us both outwardly in our bodies and inwardly in our souls, that we may be defended from all adversities which may happen to the body, and from all evil thoughts which may assault and hurt the soul; through Jesus Christ our Lord. Amen.
 
-O God, who knowest us to be set in the midst of so many and great dangers, that by reason of the frailty of our nature we cannot always stand upright; Grant to us such strength and protection as may support us in all dangers, and carry us through all temptations; through Jesus Christ our Lord. Amen.
+O God, who know us to be set in the midst of so many and great dangers, that by reason of the frailty of our nature we cannot always stand upright; Grant to us such strength and protection as may support us in all dangers, and carry us through all temptations; through Jesus Christ our Lord. Amen.
 
-O ALMIGHTY Lord and everlasting God, vouchsafe, we beseech Thee, to direct, sanctify, and govern, both our hearts and bodies in the ways of Thy laws, and in the works of Thy commandments; that through Thy most mighty protection, both here and ever, we may be preserved in body and soul; through our Lord and Saviour Jesus Christ. Amen.
+O ALMIGHTY Lord, and everlasting God, be pleased, we pray, to direct, sanctify, and govern both our hearts and bodies in the ways of Your laws, and in the works of Your commandments; that through Your most mighty protection, both here and ever, we may be preserved in body and soul; through our Lord and Savior Jesus Christ. Amen.
 
-INTO Thy hands we commit ourselves, O God. We say of the Lord: Thou art our refuge; our present help in time of trouble; our hiding-place from the wind and covert from the tempest; our God, in Thee will we trust; through Jesus Christ our Lord. Amen.
+INTO Your hands we commit ourselves, O God. We say of the Lord: You are our refuge; our present help in time of trouble; our hiding-place from the wind and covert from the tempest; our God, in You will we trust; through Jesus Christ our Lord. Amen.
 
 #### A Prayer for Anything Desired According to the Will of God
 
-LORD, if it be Thy will, let this come to pass: Lord, if it be for Thy glory, so be it in Thy Name. Lord, if Thou seest this is well for us and useful, then grant it unto us to use for Thine honour: But if Thou knowest it to be harmful and of no profit, then take from us the longing. Lord, Thou knowest in what way it is better: Let this or that be as Thou wilt. Give unto us what Thou wilt, how much Thou wilt, and when Thou wilt. Do with us as Thou wilt, put us where Thou wilt, deal freely with us every day. We are in Thy hand: Behold, we are Thy servants. We would not live unto ourselves but unto Thee: O that we could do so worthily and perfectly; through Jesus Christ our Lord. Amen.
+LORD, if it is Your will, let this come to pass: Lord, if it is for Your glory, so be it in Your Name. Lord, if You see this is well for us and useful, then grant it to us to use for Your honor: But if You know it to be harmful and of no profit, then take from us the longing. Lord, You know in what way it is better: Let this or that be as You will. Give to us what You will, how much You will, and when You will. Do with us as You will, put us where You will, deal freely with us every day. We are in Your hand: Behold, we are Your servants. We would not live to ourselves but to You: O that we could do so worthily and perfectly; through Jesus Christ our Lord. Amen.
 
 #### For Grace to Live
 
-O GOD, who, by the example of Thy dear Son hast warned us that we should work Thy works while it is day, before the night cometh, when no man can work; Keep us from sloth and idleness, and from the misuse of those talents which Thou hast committed to our trust. Enable us to perform the several duties of our state and calling with such care and diligence that our work may never be reproved in Thy sight; and forasmuch as the needful business of this life is apt to steal away our hearts from Thee, give us grace to remember that we have a Master in heaven, and to do everything in singleness of heart, as unto Thee and not unto men, that of Thee we may receive the reward of the inheritance which Thou hast promised in Thy Son, our Saviour Jesus Christ. Amen.
+O GOD, who, by the example of Your dear Son have warned us that we should work Your works while it is day, before the night comes, when no man can work; Keep us from sloth and idleness, and from the misuse of those talents which You have committed to our trust. Enable us to perform the several duties of our state and calling with such care and diligence that our work may never be reproved in Your sight; and since the needful business of this life is apt to steal away our hearts from You, give us grace to remember that we have a Master in heaven, and to do everything in singleness of heart, as to You and not to men, that of You we may receive the reward of the inheritance which You have promised in Your Son, our Savior Jesus Christ. Amen.
 
-O GOD, by whom the meek are guided in judgment, and light riseth up in darkness for the godly; Grant us, in all our doubts and uncertainties, the grace to ask what Thou wouldest have us to do; that the Spirit of Wisdom may save us from all false choices, and that in Thy light we may see light, and in Thy straight path may not stumble; through Jesus Christ our Lord. Amen.
+O GOD, by whom the meek are guided in judgment, and light rises up in darkness for the godly; Grant us, in all our doubts and uncertainties, the grace to ask what You would have us to do; that the Spirit of Wisdom may save us from all false choices, and that in Your light we may see light, and in Your straight path may not stumble; through Jesus Christ our Lord. Amen.
 
 #### For Grace to Die
 
-O GOD, who holdest our souls in life, and hast appointed unto all men once to die; Grant that when our last hour cometh, and the time of our earthly sojourn is ended, we may neither be troubled nor dismayed; but being satisfied with Thy goodness and mercy, we may commend our spirits to Thy care; and firmly trusting in the merits of Thy Son, our Saviour, we may obtain a peaceful death and a happy entrance into glory. And this we beg for the sake of Him who died for us that we might live with Thee for ever. Amen.
+O GOD, who hold our souls in life, and have appointed to all men once to die; Grant that when our last hour comes, and the time of our earthly sojourn is ended, we may neither be troubled nor dismayed; but being satisfied with Your goodness and mercy, we may commend our spirits to Your care; and firmly trusting in the merits of Your Son, our Savior, we may obtain a peaceful death and a happy entrance into glory. And this we beg for the sake of Him who died for us that we might live with You for ever. Amen.
 
 ### V. Ascriptions of Praise
 
@@ -2616,11 +2616,11 @@ NOW unto the God of all grace, who hath called us unto His eternal glory by Chri
 
 **VI.**
 
-AND now to the Father, Son, and Holy Ghost, three Persons and one God, be ascribed by us, and by the whole Church, as is most due, the kingdom, the power, and the glory, for ever and ever. Amen.
+AND now to the Father, Son, and Holy Spirit, three Persons and one God, be ascribed by us, and by the whole Church, as is most due, the kingdom, the power, and the glory, for ever and ever. Amen.
 
 **VII.**
 
-UNTO the Father, and unto the Son, and unto the Holy Ghost, be ascribed in the Church all honour and glory, might, majesty, dominion, and blessing, now, henceforth, and for ever. Amen.
+TO the Father, and to the Son, and to the Holy Spirit, be ascribed in the Church all honor and glory, might, majesty, dominion, and blessing, now, henceforth, and for ever. Amen.
 
 **VIII.**
 
@@ -2632,13 +2632,13 @@ BLESSING, and honour, and glory, and power, be unto Him that sitteth upon the th
 
 #### Sunday
 
-GLORY be to Thee, O God; Giver of the morning light, who hast raised our Lord Jesus from the dead, on this first day of the week, that we might rejoice in it and keep it holy, a Sabbath of the heart.
+GLORY be to You, O God; Giver of the morning light, who have raised our Lord Jesus from the dead, on this first day of the week, that we might rejoice in it and keep it holy, a Sabbath of the heart.
 
-Cleanse us now, we implore Thee, from all our sin, and bathe us with the dew of Thy divine forgiveness, that we, being renewed in spirit, may enter gladly into the pure worship of this day, and serve Thee with heavenly meditation and holy music, with faithful prayer and thankful praise, with words of love and works of mercy, with joy in Thy creation and perfect peace in Thee, according to the teaching and the example of Thy Son, our living Saviour Jesus Christ. Amen.
+Cleanse us now, we implore You, from all our sin, and bathe us with the dew of Your divine forgiveness, that we, being renewed in spirit, may enter gladly into the pure worship of this day, and serve You with heavenly meditation and holy music, with faithful prayer and thankful praise, with words of love and works of mercy, with joy in Your creation and perfect peace in You, according to the teaching and the example of Your Son, our living Savior Jesus Christ. Amen.
 
-AS the hart panteth after the water-brooks, O God, our souls do thirst after Thee, that we may see Thy power and Thy glory, as we have seen them in the sanctuary, and be satisfied with the goodness of Thy House. Lead us and guide us unto Thy holy hill, and bring us together with sweet converse to the place of prayer, to hear Thy Word of Truth in the spirit, to offer the sacrifices of joy with Thy people, and to make melody in our hearts with the songs of Zion. Prepare us, we beseech Thee, for a true entrance into the secret of Thy tabernacle; and bless Thy churches everywhere this day with the clear shining of Thy Presence; that the Holy Spirit may descend on many hearts, and multitudes may be brought from the kingdom of Satan into the kingdom of Thy dear Son Jesus Christ. Amen.
+AS the hart pants after the water-brooks, O God, our souls thirst after You, that we may see Your power and Your glory, as we have seen them in the sanctuary, and be satisfied with the goodness of Your House. Lead us and guide us to Your holy hill, and bring us together with sweet converse to the place of prayer, to hear Your Word of Truth in the spirit, to offer the sacrifices of joy with Your people, and to make melody in our hearts with the songs of Zion. Prepare us, we pray, for a true entrance into the secret of Your tabernacle; and bless Your churches everywhere this day with the clear shining of Your Presence; that the Holy Spirit may descend on many hearts, and multitudes may be brought from the kingdom of Satan into the kingdom of Your dear Son Jesus Christ. Amen.
 
-ALMIGHTY God, we praise Thee for the mercies which Thou hast bestowed upon us as a household, and we beseech Thee to bless all the families of earth with a Father's blessing. Look mercifully upon the solitary and the lonely, the weary and the heavy-laden, and grant them rest unto their souls. Pity and relieve the sorrows of all mankind. Shed abroad the holy influence of the Sabbath throughout our land, and keep our whole country, with those who are chosen to govern it, in the way of righteousness and peace. Finally we commend to Thy fatherly goodness all who are near and dear to us, wherever they may be to-day, praying Thee to watch over them, to provide for them, to bless them in body and soul, and at last to bring them and us into the perfect and eternal joy of heaven; through Jesus Christ our Lord. Amen.
+ALMIGHTY God, we praise You for the mercies which You have bestowed upon us as a household, and we ask You to bless all the families of earth with a Father's blessing. Look mercifully upon the solitary and the lonely, the weary and the heavy-laden, and grant them rest to their souls. Pity and relieve the sorrows of all mankind. Shed abroad the holy influence of the Sabbath throughout our land, and keep our whole country, with those who are chosen to govern it, in the way of righteousness and peace. Finally we commend to Your fatherly goodness all who are near and dear to us, wherever they may be today, praying You to watch over them, to provide for them, to bless them in body and soul, and at last to bring them and us into the perfect and eternal joy of heaven; through Jesus Christ our Lord. Amen.
 
 ¶ *Here any special prayer or brief petition, suited to the need of the household, to any particular occasion, or to the season of the year, may be added; and let all present join their voices and hearts in*
 
@@ -2646,11 +2646,11 @@ ALMIGHTY God, we praise Thee for the mercies which Thou hast bestowed upon us as
 
 #### Monday
 
-O GOD, our Father, of whom the whole family in heaven and on earth is named; Bestow upon our household, at the beginning of this day, that grace which shall keep us in the fellowship of the Christian way: and grant unto each one of us that heavenly guidance and control, in all our labours, pleasures, and trials, which shall maintain our hearts in peace with one another and with Thee. Graciously help and prosper us in the doing of our various duties, with a willing and a cheerful mind; and defend us all, by Thine almighty power, both from inward evil and from outward harm; so that, when the day is ended, it may not leave us in sorrow, strife, or shame, but in true unity and thankful rest, through Thy merciful favour and Thy forgiving love, in Christ Jesus our Lord. Amen.
+O GOD, our Father, of whom the whole family in heaven and on earth is named; Bestow upon our household, at the beginning of this day, that grace which shall keep us in the fellowship of the Christian way: and grant to each one of us that heavenly guidance and control, in all our labors, pleasures, and trials, which shall maintain our hearts in peace with one another and with You. Graciously help and prosper us in the doing of our various duties, with a willing and a cheerful mind; and defend us all, by Your almighty power, both from inward evil and from outward harm; so that, when the day is ended, it may not leave us in sorrow, strife, or shame, but in true unity and thankful rest, through Your merciful favor and Your forgiving love, in Christ Jesus our Lord. Amen.
 
-ALMIGHTY God, the Fountain of all wisdom, who knowest our necessities before we ask, and our ignorance in asking; We beseech Thee to have compassion upon our infirmities; and those things which for our unworthiness we dare not, and for our blindness we cannot, ask, vouchsafe to give us in the fulness of Thy love and grace, which Thou hast made known to us; through Jesus Christ our Lord. Amen.
+ALMIGHTY God, the Fountain of all wisdom, who know our necessities before we ask, and our ignorance in asking; We ask You to have compassion upon our infirmities; and those things which for our unworthiness we dare not, and for our blindness we cannot, ask, be pleased to give us in the fullness of Your love and grace, which You have made known to us; through Jesus Christ our Lord. Amen.
 
-LIFT upon us the light of Thy countenance, O God, that we may rejoice and be glad in Thee; and send into our souls the purifying gift of Thy pardon, that our sins may be utterly removed from us, and we may go forth with a clean spirit, a joyful courage, and strength sufficient for our needs, to meet whatever thou hast appointed for us during this day. And grant, O most merciful Lord, that we may neither forget the precepts and the promises of Thy holy Word, nor depart in thought, or word, or deed from the obedient faith of Thy true children in Jesus Christ. Amen.
+LIFT upon us the light of Your countenance, O God, that we may rejoice and be glad in You; and send into our souls the purifying gift of Your pardon, that our sins may be utterly removed from us, and we may go forth with a clean spirit, a joyful courage, and strength sufficient for our needs, to meet whatever You have appointed for us during this day. And grant, O most merciful Lord, that we may neither forget the precepts and the promises of Your holy Word, nor depart in thought, or word, or deed from the obedient faith of Your true children in Jesus Christ. Amen.
 
 ¶ *Here any special prayer or brief petition, suited to the need of the household, to any particular occasion, or to the season of the year, may be added; and let all present join their voices and hearts in*
 
@@ -2658,11 +2658,11 @@ LIFT upon us the light of Thy countenance, O God, that we may rejoice and be gla
 
 #### Tuesday
 
-O THOU, who art the true Sun of the world, evermore rising, and never going down; who, by Thy most wholesome appearing and light dost nourish, and make joyful all things, as well that are in heaven, as also that are on earth; We beseech Thee mercifully and favourably to shine into our hearts, that the night and darkness of sin, and the mists of error on every side, being driven away, Thou brightly shining within our hearts, we may all our life long go without any stumbling or offense, and may walk as in the daytime, being pure and clean from the works of darkness, and abounding in all good works which Thou hast prepared for us to walk in. Amen.
+O YOU, who are the true Sun of the world, evermore rising, and never going down; who, by Your most wholesome appearing and light nourish, and make joyful all things, as well those that are in heaven, as also those that are on earth; We ask You mercifully and favorably to shine into our hearts, that the night and darkness of sin, and the mists of error on every side, being driven away, You brightly shining within our hearts, we may all our life long go without any stumbling or offense, and may walk as in the daytime, being pure and clean from the works of darkness, and abounding in all good works which You have prepared for us to walk in. Amen.
 
-ALMIGHTY God, who alone gavest us the breath of life, and alone canst keep alive in us the breathing of holy desires; We beseech Thee for Thy compassion's sake to sanctify all our thoughts and endeavours, that we may neither begin any action without a pure intention, nor continue it without Thy blessing; and grant that, having the eyes of our understanding purged to behold things invisible and unseen, we may in heart be inspired with Thy wisdom, and in work be upheld by Thy strength, and in the end be accepted of Thee, as Thy faithful servants, having done all things to Thy glory, and thereby to our endless peace. Grant this prayer, O Lord. Amen.
+ALMIGHTY God, who alone gave us the breath of life, and alone can keep alive in us the breathing of holy desires; We ask You for Your compassion's sake to sanctify all our thoughts and endeavors, that we may neither begin any action without a pure intention, nor continue it without Your blessing; and grant that, having the eyes of our understanding purged to behold things invisible and unseen, we may in heart be inspired with Your wisdom, and in work be upheld by Your strength, and in the end be accepted of You, as Your faithful servants, having done all things to Your glory, and thereby to our endless peace. Grant this prayer, O Lord. Amen.
 
-O GOD, most merciful, who healest those that are broken in heart, and turnest the sadness of the sorrowful to joy; Let Thy Fatherly goodness be upon all that Thou hast made. Especially we beseech Thee to remember in pity such as are this day destitute, homeless, or forgotten of their fellow-men. Bless the congregation of the poor. Uplift those who are cast down, mightily befriend innocent sufferers, and sanctify to them the endurance of their wrongs. Cheer with hope all discouraged and unhappy people, and by Thy heavenly grace preserve from falling those whose penury tempteth them to sin. Though they be troubled on every side, suffer them not to be distressed; though they be perplexed, save them from despair. Grant this, O Lord, for the love of Him who for our sakes became poor, Thy Son, our Saviour Jesus Christ. Amen.
+O GOD, most merciful, who heal those who are broken in heart, and turn the sadness of the sorrowful to joy; Let Your Fatherly goodness be upon all that You have made. Especially we ask You to remember in pity such as are this day destitute, homeless, or forgotten of their fellow-men. Bless the congregation of the poor. Uplift those who are cast down, mightily befriend innocent sufferers, and sanctify to them the endurance of their wrongs. Cheer with hope all discouraged and unhappy people, and by Your heavenly grace preserve from falling those whose poverty tempts them to sin. Though they are troubled on every side, do not let them be distressed; though they are perplexed, save them from despair. Grant this, O Lord, for the love of Him who for our sakes became poor, Your Son, our Savior Jesus Christ. Amen.
 
 ¶ *Here any special prayer or brief petition, suited to the need of the household, to any particular occasion, or to the season of the year, may be added; and let all present join their voices and hearts in*
 
@@ -2670,9 +2670,9 @@ O GOD, most merciful, who healest those that are broken in heart, and turnest th
 
 #### Wednesday
 
-ALMIGHTY and most merciful Father, in whom we live and move and have our being, to whose tender compassion we owe our safety in days past, together with all the comforts of this present life, and the hopes of that which is to come; We praise Thee, O God, our exceeding Joy, who daily pourest Thy benefits upon us. Grant, we beseech Thee, that Jesus our Lord, the Hope of glory, may be formed in us, in all humility, meekness, patience, contentedness, and absolute surrender of our souls and bodies to Thy holy will and pleasure. Leave us not, nor forsake us, O Father, but conduct us safe through all changes of our condition here, in an unchangeable love to Thee, and in holy tranquillity of mind in Thy love to us, till we come to dwell with Thee, and rejoice in Thee for ever. Amen.
+ALMIGHTY and most merciful Father, in whom we live and move and have our being, to whose tender compassion we owe our safety in days past, together with all the comforts of this present life, and the hopes of that which is to come; We praise You, O God, our exceeding Joy, who daily pour Your benefits upon us. Grant, we pray, that Jesus our Lord, the Hope of glory, may be formed in us, in all humility, meekness, patience, contentedness, and absolute surrender of our souls and bodies to Your holy will and pleasure. Do not leave us nor forsake us, O Father, but conduct us safely through all changes of our condition here, in an unchangeable love to You, and in holy tranquillity of mind in Your love to us, till we come to dwell with You, and rejoice in You for ever. Amen.
 
-GRANT, O Lord, that this day which Thou hast given unto us in mercy, may be returned unto Thee in service: As Thou hast guarded us during the helpless hours of sleep, so do Thou guide us during the appointed hours of labour; that all our tasks may be gladly and faithfully performed, as in Thy sight; that our burdens may not be too heavy for us, because Thine aid and comfort are with us continually; and that in nothing may we displease Thee, or injure one another. But if in anything we fail or come short, through ignorance or weakness, O God, let Thy fatherly wisdom correct us, and Thine infinite mercy forgive us, and Thy divine love amend our fault; through Jesus Christ our Saviour. Amen.
+GRANT, O Lord, that this day which You have given to us in mercy, may be returned to You in service: As You have guarded us during the helpless hours of sleep, so guide us during the appointed hours of labor; that all our tasks may be gladly and faithfully performed, as in Your sight; that our burdens may not be too heavy for us, because Your aid and comfort are with us continually; and that in nothing may we displease You, or injure one another. But if in anything we fail or come short, through ignorance or weakness, O God, let Your fatherly wisdom correct us, and Your infinite mercy forgive us, and Your divine love amend our fault; through Jesus Christ our Savior. Amen.
 
 ¶ *Here any special prayer or brief petition, suited to the need of the household, to any particular occasion, or to the season of the year, may be added; and let all present join their voices and hearts in*
 
@@ -2680,11 +2680,11 @@ GRANT, O Lord, that this day which Thou hast given unto us in mercy, may be retu
 
 #### Thursday
 
-O LORD, lift up the light of Thy countenance upon us: let Thy peace rule in our hearts; and may it be our strength, and our song in the house of our pilgrimage. We commit ourselves to Thy care and keeping this day; let Thy grace be mighty in us, and sufficient for us, and let it work in us both to will and to do of Thine own good pleasure. Keep us from sin; give us the rule over our own spirits; and keep us from speaking unadvisedly with our lips. May we live together in peace and holy love, and do Thou command Thy blessing upon us, even life for evermore. Prepare us for all the events of the day; for we know not what a day may bring forth. Give us grace to deny ourselves, to take up our cross daily, and to follow in the steps of our Lord and Master. Amen.
+O LORD, lift up the light of Your countenance upon us: let Your peace rule in our hearts; and may it be our strength, and our song in the house of our pilgrimage. We commit ourselves to Your care and keeping this day; let Your grace be mighty in us, and sufficient for us, and let it work in us both to will and to do of Your own good pleasure. Keep us from sin; give us the rule over our own spirits; and keep us from speaking unadvisedly with our lips. May we live together in peace and holy love, and command Your blessing upon us, even life for evermore. Prepare us for all the events of the day; for we know not what a day may bring forth. Give us grace to deny ourselves, to take up our cross daily, and to follow in the steps of our Lord and Master. Amen.
 
-O THOU who dwellest in heaven, mercifully regard all Thy sorrowful and afflicted children upon earth, we beseech Thee. Draw near to them with the comfort of Thy love, and sustain them by the right hand of Thy power. Grant us a heart to sympathize with them in their distress, and give us both the opportunity and the will to help those who are in any trouble, for Jesus Christ's sake. Amen.
+O YOU who dwell in heaven, mercifully regard all Your sorrowful and afflicted children upon earth, we pray. Draw near to them with the comfort of Your love, and sustain them by the right hand of Your power. Grant us a heart to sympathize with them in their distress, and give us both the opportunity and the will to help those who are in any trouble, for Jesus Christ's sake. Amen.
 
-O GOD, the Protector of all that trust in Thee, without whom nothing is strong, nothing is holy; Increase and multiply upon us Thy mercy, that, Thou being our ruler and guide, we may so pass through things temporal, that we may finally lose not the things eternal. Grant this, O Lord, most merciful, for the sake of Thy dear Son, our Saviour. Amen.
+O GOD, the Protector of all that trust in You, without whom nothing is strong, nothing is holy; Increase and multiply upon us Your mercy, that, You being our ruler and guide, we may so pass through things temporal that we may not finally lose the things eternal. Grant this, O Lord, most merciful, for the sake of Your dear Son, our Savior. Amen.
 
 ¶ *Here any special prayer or brief petition, suited to the need of the household, to any particular occasion, or to the season of the year, may be added; and let all present join their voices and hearts in*
 
@@ -2692,9 +2692,9 @@ O GOD, the Protector of all that trust in Thee, without whom nothing is strong, 
 
 #### Friday
 
-WE praise Thee, O God, with the morning light, and in the brightness of a new day we bless Thy holy Name. For all Thou hast bestowed upon us with the gift of life, making us in Thine own image, and granting us to share as children in Thy knowledge and Thy love, in Thy work and Thy joy; we thank Thee, heavenly Father. For all good things in the world, for food and raiment, for home and friendship, for useful tasks and pure pleasures; we thank Thee, heavenly Father. For all spiritual blessings, for Thy holy Word, for the Christian fellowship, for the good example and blessed memory of Thy saints, for the secret influence of Thy Spirit; we thank Thee, heavenly Father. And above all we praise and bless Thee for the life and death of Thy dear Son, our Saviour Jesus Christ. Amen.
+WE praise You, O God, with the morning light, and in the brightness of a new day we bless Your holy Name. For all You have bestowed upon us with the gift of life, making us in Your own image, and granting us to share as children in Your knowledge and Your love, in Your work and Your joy; we thank You, heavenly Father. For all good things in the world, for food and raiment, for home and friendship, for useful tasks and pure pleasures; we thank You, heavenly Father. For all spiritual blessings, for Your holy Word, for the Christian fellowship, for the good example and blessed memory of Your saints, for the secret influence of Your Spirit; we thank You, heavenly Father. And above all we praise and bless You for the life and death of Your dear Son, our Savior Jesus Christ. Amen.
 
-O LORD, grant that our hearts may be truly cleansed, and filled with Thy Holy Spirit, and that we may arise to serve Thee, in entire confidence and submission to Thy will, ready to do and to endure whatsoever Thou hast appointed for us. Let us live for the day, not overcharged with worldly cares, but feeling that our treasure is not here, and desiring truly to be joined to Thee in Thy heavenly kingdom, and to those who are already gone to Thee. O Lord, save us from sin, and guide us with Thy Spirit, and keep us in faithful obedience to Thee; through Jesus Christ our Lord. Amen.
+O LORD, grant that our hearts may be truly cleansed, and filled with Your Holy Spirit, and that we may arise to serve You, in entire confidence and submission to Your will, ready to do and to endure whatever You have appointed for us. Let us live for the day, not overcharged with worldly cares, but feeling that our treasure is not here, and desiring truly to be joined to You in Your heavenly kingdom, and to those who are already gone to You. O Lord, save us from sin, and guide us with Your Spirit, and keep us in faithful obedience to You; through Jesus Christ our Lord. Amen.
 
 ¶ *Here any special prayer or brief petition, suited to the need of the household, to any particular occasion, or to the season of the year, may be added; and let all present join their voices and hearts in*
 
@@ -2702,7 +2702,7 @@ O LORD, grant that our hearts may be truly cleansed, and filled with Thy Holy Sp
 
 #### Saturday
 
-ALMIGHTY God, our Father and Preserver; We give Thee thanks that of Thy goodness Thou hast watched over us the past night, and brought us to a new day: and we beseech Thee to strengthen and guard us by Thy Spirit, that we may spend it wholly in Thy service and to Thy glory, looking for all prosperity to Thy blessing, and seeking only those things which are well-pleasing in Thy sight. Enable us, O Lord, while we labour for the life that now is, ever to have regard unto that heavenly life which Thou hast promised Thy children. Defend us in soul and body from all harm. And seeing it is a small thing to have begun well, except we also persevere, take us, O Lord, into Thy good keeping this day and all our days: continue and increase Thy grace within us, until we shall be perfectly united in the glory of Thy Son. Show Thy loving-kindness unto all men and women and little children, according to the need of every living soul, especially unto those whom we love, and those who are in any kind of trouble or distress, whom we now remember silently before Thee: [here let there be a moment of prayer in silence;] Protect our country, and prosper Thy Church: Bless all who do good in the world, and restrain and convert all who do evil. And finally, be pleased to cast out of Thy remembrance all our past offenses, forgiving them in Thy boundless mercy and purifying our hearts, that we may lead a better life; through Jesus Christ our Lord. Amen.
+ALMIGHTY God, our Father and Preserver; We give You thanks that of Your goodness You have watched over us the past night, and brought us to a new day: and we ask You to strengthen and guard us by Your Spirit, that we may spend it wholly in Your service and to Your glory, looking for all prosperity to Your blessing, and seeking only those things which are well-pleasing in Your sight. Enable us, O Lord, while we labor for the life that now is, ever to have regard to that heavenly life which You have promised Your children. Defend us in soul and body from all harm. And seeing it is a small thing to have begun well, unless we also persevere, take us, O Lord, into Your good keeping this day and all our days: continue and increase Your grace within us, until we shall be perfectly united in the glory of Your Son. Show Your loving-kindness to all men and women and little children, according to the need of every living soul, especially to those whom we love, and those who are in any kind of trouble or distress, whom we now remember silently before You: [here let there be a moment of prayer in silence;] Protect our country, and prosper Your Church: Bless all who do good in the world, and restrain and convert all who do evil. And finally, be pleased to cast out of Your remembrance all our past offenses, forgiving them in Your boundless mercy and purifying our hearts, that we may lead a better life; through Jesus Christ our Lord. Amen.
 
 ¶ *Here any special prayer or brief petition, suited to the need of the household, to any particular occasion, or to the season of the year, may be added; and let all present join their voices and hearts in*
 
@@ -2710,71 +2710,71 @@ ALMIGHTY God, our Father and Preserver; We give Thee thanks that of Thy goodness
 
 #### For the Sick
 
-O THOU who hearest prayer, we pray Thee to be very kind and merciful to Thy child ——, whose body suffers in pain and weakness, [and whose life, dear to us, is in danger.] Grant unto him patience and tranquillity of mind; peace, purity, and courage of soul; the strong will to live if it be Thy will; and a heart ready to trust Thee waking or sleeping. Bless all the means used for his recovery, and all who minister to him in his suffering [and peril.] Make Thou his bed in his sickness, and comfort him as a mother comforteth her child. Restore him speedily to health, if it please Thee, but above all things grant him that which Thou knowest to be best for him, and keep him Thine for evermore; through Jesus Christ our Saviour. Amen.
+O YOU who hear prayer, we pray You to be very kind and merciful to Your child ——, whose body suffers in pain and weakness, [and whose life, dear to us, is in danger.] Grant to him patience and tranquillity of mind; peace, purity, and courage of soul; the strong will to live if it is Your will; and a heart ready to trust You waking or sleeping. Bless all the means used for his recovery, and all who minister to him in his suffering [and peril.] Make his bed in his sickness, and comfort him as a mother comforts her child. Restore him speedily to health, if it pleases You, but above all things grant him that which You know to be best for him, and keep him Yours for evermore; through Jesus Christ our Savior. Amen.
 
 #### For the Absent
 
-ALMIGHTY God, who art not far from any one of us; We commend into Thy fatherly care and keeping ——, to whom our hearts go out in absence. Let these our loving thoughts come up before Thee as prayers and supplications; defend our beloved from all danger and harm, in body and in soul; enrich him with all blessings both for this life and for that which is to come; and grant that we may soon meet together, with joy and not with grief, to thank Thee for all Thy mercies, in Christ Jesus our Lord. Amen.
+ALMIGHTY God, who are not far from any one of us; We commend into Your fatherly care and keeping ——, to whom our hearts go out in absence. Let these our loving thoughts come up before You as prayers and supplications; defend our beloved from all danger and harm, in body and in soul; enrich him with all blessings both for this life and for that which is to come; and grant that we may soon meet together, with joy and not with grief, to thank You for all Your mercies, in Christ Jesus our Lord. Amen.
 
 #### For Departing Friends and Travellers
 
-MOST merciful Father, we beseech Thee to protect and prosper —— on his intended journey. May the Angel of Thy Presence be with him wherever he may go, and may all his steps be ordered of Thee in wisdom and love; so that he shall travel with Thee as his guardian and his guide, and arrive in safety at his desired haven. O Lord, bless his going-out and his coming-in, from this time forth and even for evermore. Amen.
+MOST merciful Father, we ask You to protect and prosper —— on his intended journey. May the Angel of Your Presence be with him wherever he may go, and may all his steps be ordered of You in wisdom and love; so that he shall travel with You as his guardian and his guide, and arrive in safety at his desired haven. O Lord, bless his going-out and his coming-in, from this time forth and even for evermore. Amen.
 
 #### For a Family in Time of Distress
 
-O GOD, most wise and loving and faithful Redeemer, Thou hast permitted us to come into this present trial, [*here the affliction may be named or silently remembered,*] in order that we may learn obedience by the things that we suffer, and turn to Thee, our Helper in the time of trouble. Grant, therefore, that there may be no bitterness in our sorrow, no despair in our submission, and no doubt of Thee in our perplexity of heart. But do Thou teach us to face our trial manfully, and cause even the dark things of life to work together for our good, and bring us speedily out of our distress, that we may praise Thee with a joyful heart, in Christ Jesus our Lord. Amen.
+O GOD, most wise and loving and faithful Redeemer, You have permitted us to come into this present trial, [*here the affliction may be named or silently remembered,*] in order that we may learn obedience by the things that we suffer, and turn to You, our Helper in the time of trouble. Grant, therefore, that there may be no bitterness in our sorrow, no despair in our submission, and no doubt of You in our perplexity of heart. But teach us to face our trial manfully, and cause even the dark things of life to work together for our good, and bring us speedily out of our distress, that we may praise You with a joyful heart, in Christ Jesus our Lord. Amen.
 
 #### Brief Petitions
 
-O GOD, who hast taught us to keep all Thy heavenly commandments by loving Thee and our neighbour; Grant us the spirit of peace and grace, that we may be both devoted to Thee with our whole heart, and united to each other with a pure will; through Jesus Christ our Lord. Amen.
+O GOD, who have taught us to keep all Your heavenly commandments by loving You and our neighbor; Grant us the spirit of peace and grace, that we may be both devoted to You with our whole heart, and united to each other with a pure will; through Jesus Christ our Lord. Amen.
 
-HEAR our prayers, O Lord, and consider our desires. Give unto us true humility, a meek and quiet spirit, a loving and a friendly, a holy and a useful manner of life; bearing the burdens of our neighbours, denying ourselves, and studying to benefit others, and to please Thee in all things. Grant us to be righteous in performing promises, loving to our relatives, careful of our charges; to be gentle and easy to be entreated, slow to anger, and readily prepared for every good work. Amen.
+HEAR our prayers, O Lord, and consider our desires. Give to us true humility, a meek and quiet spirit, a loving and a friendly, a holy and a useful manner of life; bearing the burdens of our neighbors, denying ourselves, and studying to benefit others, and to please You in all things. Grant us to be righteous in performing promises, loving to our relatives, careful of our charges; to be gentle and easy to be entreated, slow to anger, and readily prepared for every good work. Amen.
 
-LOOK upon us, O Lord, and let all the darkness of our souls vanish before the beams of Thy brightness. Fill us with holy love, and open to us the treasures of Thy wisdom. All our desire is known unto Thee: therefore perfect what Thou hast begun, and what Thy Spirit has awakened us to ask in prayer. We seek Thy face: turn Thy face unto us, and show us Thy glory. Then shall our longing be satisfied, and our peace shall be perfect. Amen.
+LOOK upon us, O Lord, and let all the darkness of our souls vanish before the beams of Your brightness. Fill us with holy love, and open to us the treasures of Your wisdom. All our desire is known to You: therefore perfect what You have begun, and what Your Spirit has awakened us to ask in prayer. We seek Your face: turn Your face to us, and show us Your glory. Then shall our longing be satisfied, and our peace shall be perfect. Amen.
 
-GRANT, Lord, that we may not, for one moment, admit willingly into our souls any thought contrary to Thy love. Amen.
+GRANT, Lord, that we may not, for one moment, admit willingly into our souls any thought contrary to Your love. Amen.
 
-O LORD, perfect, we beseech Thee, the faith of us who believe, and sow the good seed of faith in their hearts who as yet lack it; that we all may look steadfastly unto Thee, and run with patience the race that is set before us. Give us grace to show our faith by our works; teach us to walk by faith, having respect unto the promises: which of Thy mercy make good to us in Thine own good time, O our most gracious Lord God and Saviour. Amen.
+O LORD, perfect, we pray, the faith of us who believe, and sow the good seed of faith in their hearts who as yet lack it; that we all may look steadfastly to You, and run with patience the race that is set before us. Give us grace to show our faith by our works; teach us to walk by faith, having respect to the promises: which of Your mercy make good to us in Your own good time, O our most gracious Lord God and Savior. Amen.
 
-ALMIGHTY God, who art the Giver of all wisdom; Enlighten our understandings with knowledge of right, and govern our wills by Thy laws, that no deceit may mislead us, nor temptation corrupt us; that we may always endeavour to do good, and to hinder evil. Amidst all the hopes and fears of this world, take not Thy Holy Spirit from us; but grant that our thoughts may be fixed on Thee, and that we may finally attain everlasting happiness, for Jesus Christ's sake. Amen.
+ALMIGHTY God, who are the Giver of all wisdom; Enlighten our understandings with knowledge of right, and govern our wills by Your laws, that no deceit may mislead us, nor temptation corrupt us; that we may always endeavor to do good, and to hinder evil. Amid all the hopes and fears of this world, do not take Your Holy Spirit from us; but grant that our thoughts may be fixed on You, and that we may finally attain everlasting happiness, for Jesus Christ's sake. Amen.
 
-O GOD, who hast commanded us to be perfect, as Thou our Father in heaven art perfect; Put into our hearts, we pray Thee, a continual desire to obey Thy holy will. Teach us day by day what Thou wouldest have us do, and give us grace and power to fulfil the same. May we never, from love of ease, decline the path which Thou pointest out, nor, for fear of shame, turn away from it. Amen.
+O GOD, who have commanded us to be perfect, as You our Father in heaven are perfect; Put into our hearts, we pray You, a continual desire to obey Your holy will. Teach us day by day what You would have us do, and give us grace and power to fulfill the same. May we never, from love of ease, decline the path which You point out, nor, for fear of shame, turn away from it. Amen.
 
-O ALMIGHTY Lord, and everlasting God, vouchsafe, we beseech Thee, to direct, sanctify, and govern, both our hearts and bodies in the ways of Thy laws, and in the works of Thy commandments; that through Thy most mighty protection, both here and ever, we may be preserved in body and soul; through our Lord and Saviour Jesus Christ. Amen.
+O ALMIGHTY Lord, and everlasting God, be pleased, we pray, to direct, sanctify, and govern both our hearts and bodies in the ways of Your laws, and in the works of Your commandments; that through Your most mighty protection, both here and ever, we may be preserved in body and soul; through our Lord and Savior Jesus Christ. Amen.
 
 ### Evening
 
 #### A General Prayer
 
-O GOD most merciful, Light eternal in the darkness shining, by whom the night of sin and the blindness of our hearts are driven away: Since Thou hast appointed the day for labour and the night for rest; grant unto us, we beseech Thee, that our bodies may repose in peace and quietness, that afterward they may be able to endure the toil which Thou hast laid upon us in Thy service: Temper our sleep that it be not disorderly, and keep us spotless both in body and in soul, that our very rest may be to Thy glory, renewing the strength of our hearts and our joy in Thee: Enlighten the eyes of our understanding that we may not sleep in death, but obtain deliverance, through faith and hope, from all fear of this misery: Defend us against all assaults of our enemies, and take us into Thy holy protection. And although we have not passed this day without greatly sinning against Thee, we beseech Thee to hide our sins with Thy mercy, as Thou coverest all things on earth with the darkness of the night, that they may be blotted out from Thy remembrance, and we may abide in Thy presence and Thy favour, both now and for evermore. Relieve and comfort, with Thy fatherly goodness, all who are afflicted or distressed in mind, body, or estate: Protect and prosper, with Thine almighty power, our country and our rulers, the whole Church of Christ on earth, our home, and all that we hold dear and sacred: Be pleased to guard and help those whom we silently remember before Thee: [here let there be a moment of prayer in silence;] Bless us and keep us, watch over us and save us, O God in whom we trust; through Jesus Christ our Lord. Amen.
+O GOD most merciful, Light eternal in the darkness shining, by whom the night of sin and the blindness of our hearts are driven away: Since You have appointed the day for labor and the night for rest; grant to us, we pray, that our bodies may rest in peace and quietness, that afterward they may be able to endure the toil which You have laid upon us in Your service: Temper our sleep that it may not be disorderly, and keep us spotless both in body and in soul, that our very rest may be to Your glory, renewing the strength of our hearts and our joy in You: Enlighten the eyes of our understanding that we may not sleep in death, but obtain deliverance, through faith and hope, from all fear of this misery: Defend us against all assaults of our enemies, and take us into Your holy protection. And although we have not passed this day without greatly sinning against You, we ask You to hide our sins with Your mercy, as You cover all things on earth with the darkness of the night, that they may be blotted out from Your remembrance, and we may abide in Your presence and Your favor, both now and for evermore. Relieve and comfort, with Your fatherly goodness, all who are afflicted or distressed in mind, body, or estate: Protect and prosper, with Your almighty power, our country and our rulers, the whole Church of Christ on earth, our home, and all that we hold dear and sacred: Be pleased to guard and help those whom we silently remember before You: [here let there be a moment of prayer in silence;] Bless us and keep us, watch over us and save us, O God in whom we trust; through Jesus Christ our Lord. Amen.
 
 #### Various Prayers
 
-ALMIGHTY God, who seest that we have no power of ourselves to help ourselves; Keep us both outwardly in our bodies and inwardly in our souls, that we may be defended from all adversities which may happen to the body, and from all evil thoughts which may assault and hurt the soul; through Jesus Christ our Lord. Amen.
+ALMIGHTY God, who see that we have no power of ourselves to help ourselves; Keep us both outwardly in our bodies and inwardly in our souls, that we may be defended from all adversities which may happen to the body, and from all evil thoughts which may assault and hurt the soul; through Jesus Christ our Lord. Amen.
 
-ALMIGHTY God, the Father of our spirits; Meet with us at close of day, and grant unto us, Thy children, the peace which the world cannot give. May no unhallowed thoughts or cares disturb the quiet of this evening hour. Deliver us from the vain things which have such power over us. May we learn wisdom, receive strength, gain hope, feel the influence of things unseen, and find rest in God. Amen.
+ALMIGHTY God, the Father of our spirits; Meet with us at close of day, and grant to us, Your children, the peace which the world cannot give. May no unhallowed thoughts or cares disturb the quiet of this evening hour. Deliver us from the vain things which have such power over us. May we learn wisdom, receive strength, gain hope, feel the influence of things unseen, and find rest in God. Amen.
 
-CONFIRM, O Lord, we pray Thee, the hearts of Thy children, and strengthen them with the power of Thy grace; that they may both be devout in prayer to Thee, and sincere in love for each other; through Jesus Christ our Lord. Amen.
+CONFIRM, O Lord, we pray You, the hearts of Your children, and strengthen them with the power of Your grace; that they may both be devout in prayer to You, and sincere in love for each other; through Jesus Christ our Lord. Amen.
 
-O GOD, Father of our spirits and Giver of all good; Grant that we may live in such fellowship with Thee that we shall grow into Thy likeness, and share Thy life. Free us from fretting and pride, and beget within us a meek and modest spirit. Deliver us from the bondage and bitterness of a worldly life, and lead us out into the large and joyous liberty of Christ. May He so dwell in us that His spirit shall become our disposition, and spring up within us a well of water unto everlasting life. Lead us in a plain path along life's journey, and at last may we enter in through the gates into the City. And this we ask in Jesus' Name. Amen.
+O GOD, Father of our spirits and Giver of all good; Grant that we may live in such fellowship with You that we shall grow into Your likeness, and share Your life. Free us from fretting and pride, and beget within us a meek and modest spirit. Deliver us from the bondage and bitterness of a worldly life, and lead us out into the large and joyous liberty of Christ. May He so dwell in us that His spirit shall become our disposition, and spring up within us a well of water to everlasting life. Lead us in a plain path along life's journey, and at last may we enter in through the gates into the City. And this we ask in Jesus' Name. Amen.
 
-FATHER of our spirits, and Father of our Lord and Saviour Jesus Christ; Bind us to Thyself with cords of faith, and love that can never be broken or strained. May we feel the impulse of our divine childhood, and find rest in Thee. Feed us out of Thy Word, and may it be sweet to our souls. May prayer daily acquaint us with Thee, and make us calm and strong. Cause the light of Thy face to shine upon us, so that we shall ever see our path, and find the world our Father's home. Give us patience and peace under every burden. May we not be anxious and troubled over many things, but have the one thing needful and be content. O Master, let us walk with Thee! Amen.
+FATHER of our spirits, and Father of our Lord and Savior Jesus Christ; Bind us to Yourself with cords of faith, and love that can never be broken or strained. May we feel the impulse of our divine childhood, and find rest in You. Feed us out of Your Word, and may it be sweet to our souls. May prayer daily acquaint us with You, and make us calm and strong. Cause the light of Your face to shine upon us, so that we shall ever see our path, and find the world our Father's home. Give us patience and peace under every burden. May we not be anxious and troubled over many things, but have the one thing needful and be content. O Master, let us walk with You! Amen.
 
-WE beseech Thee, Lord, to behold us with favour, gathered together in the peace of this roof, weak men and women subsisting under the covert of Thy patience. Be patient still; suffer us yet a while longer; — with our broken purposes of good, with our idle endeavours against evil, suffer us a while longer to endure and (if it may be) help us to do better. Bless to us our extraordinary mercies; if the day come when these must be taken, brace us to play the man under affliction. Be with our friends, be with ourselves. Go with each of us to rest; if any awake, temper to them the dark hours of watching; and when the day returns, return to us, our Sun and Comforter, and call us up with morning faces and with morning hearts — eager to labour — eager to be happy, if happiness shall be our portion — and if the day be marked for sorrow, strong to endure it. Amen.
+WE ask You, Lord, to behold us with favor, gathered together in the peace of this roof, weak men and women subsisting under the covert of Your patience. Be patient still; bear with us yet a while longer; — with our broken purposes of good, with our idle endeavors against evil, bear with us a while longer to endure and (if it may be) help us to do better. Bless to us our extraordinary mercies; if the day comes when these must be taken, brace us to play the man under affliction. Be with our friends, be with ourselves. Go with each of us to rest; if any awake, temper to them the dark hours of watching; and when the day returns, return to us, our Sun and Comforter, and call us up with morning faces and with morning hearts — eager to labor — eager to be happy, if happiness shall be our portion — and if the day is marked for sorrow, strong to endure it. Amen.
 
-O LORD, make us to love Thee, and each other in Thee, and to meet before Thee to dwell in Thine everlasting love. Amen.
+O LORD, make us love You, and each other in You, and to meet before You to dwell in Your everlasting love. Amen.
 
-O LORD, support us all day long of this troublous life, until the shadows lengthen and the evening comes, and the busy world is hushed, and the fever of life is over, and our work is done. Then in Thy mercy grant us a safe lodging, and a holy rest, and peace at the last; through Jesus Christ our Lord. Amen.
+O LORD, support us all day long of this troublous life, until the shadows lengthen and the evening comes, and the busy world is hushed, and the fever of life is over, and our work is done. Then in Your mercy grant us a safe lodging, and a holy rest, and peace at the last; through Jesus Christ our Lord. Amen.
 
-SEND Thy peace into our hearts, O Lord, at the evening hour, that we may be contented with Thy mercies of this day, and confident of Thy protection for this night; and now, having forgiven others, even as Thou dost forgive us, may we have a pure comfort and a healthful rest within the shelter of this home; through Jesus Christ our Saviour. Amen.
+SEND Your peace into our hearts, O Lord, at the evening hour, that we may be contented with Your mercies of this day, and confident of Your protection for this night; and now, having forgiven others, even as You forgive us, may we have a pure comfort and a healthful rest within the shelter of this home; through Jesus Christ our Savior. Amen.
 
-LIGHTEN our darkness, we beseech Thee, O Lord; and by Thy great mercy defend us from all perils and dangers of this night; for the love of Thy only Son, our Saviour, Jesus Christ. Amen.
+LIGHTEN our darkness, we pray, O Lord; and by Your great mercy defend us from all perils and dangers of this night; for the love of Your only Son, our Savior, Jesus Christ. Amen.
 
-ALMIGHTY God, with whom do rest the spirits of just men made perfect; we bless and praise Thy holy Name for all Thy servants departed this life in Thy faith and fear; and especially for those most dear to us who have fallen asleep in Jesus. And we beseech Thee to give us grace so to follow their good example, that we may continue united to them in fellowship of spirit, and that finally we may be gathered together in Thy heavenly kingdom; through Jesus Christ our Lord. Amen.
+ALMIGHTY God, with whom rest the spirits of just men made perfect; we bless and praise Your holy Name for all Your servants departed this life in Your faith and fear; and especially for those most dear to us who have fallen asleep in Jesus. And we ask You to give us grace so to follow their good example, that we may continue united to them in fellowship of spirit, and that finally we may be gathered together in Your heavenly kingdom; through Jesus Christ our Lord. Amen.
 
 #### The Confession of Sins
 
-MOST holy and merciful Father; We acknowledge and confess in Thy Presence: Our sinful nature prone to evil and slothful in good; And all our shortcomings and offenses against Thee. Thou alone knowest how often we have sinned: In wandering from Thy ways; In wasting Thy gifts; In forgetting Thy love. But Thou, O Lord, have pity upon us; Who are ashamed and sorry for all wherein we have displeased Thee. Teach us to hate our errors; Cleanse us from our secret faults; And forgive our sins; For the sake of Thy dear Son our Saviour. And O most holy and loving Father; Send Thy purifying grace into our hearts, we beseech Thee; That we may henceforth live in Thy light and walk in Thy ways; According to the commandments of Jesus Christ our Lord. Amen.
+MOST holy and merciful Father; We acknowledge and confess in Your Presence: Our sinful nature prone to evil and slothful in good; And all our shortcomings and offenses against You. You alone know how often we have sinned: In wandering from Your ways; In wasting Your gifts; In forgetting Your love. But You, O Lord, have pity upon us; Who are ashamed and sorry for all in which we have displeased You. Teach us to hate our errors; Cleanse us from our secret faults; And forgive our sins; For the sake of Your dear Son our Savior. And O most holy and loving Father; Send Your purifying grace into our hearts, we pray; That we may from now on live in Your light and walk in Your ways; According to the commandments of Jesus Christ our Lord. Amen.
 
 #### The Lord's Prayer
 
@@ -2784,17 +2784,17 @@ OUR Father which art in heaven, Hallowed be Thy Name. Thy kingdom come. Thy will
 
 THE Lord make us grateful for all His mercies, and add His blessing, for Christ's sake. Amen.
 
-ALMIGHTY God, who providest for us, nourish our souls with the Bread of Life in Jesus Christ. Amen.
+ALMIGHTY God, who provide for us, nourish our souls with the Bread of Life in Jesus Christ. Amen.
 
-BLESS us, O Lord, in blessing Thee, as we receive Thy gift of daily bread. Amen.
+BLESS us, O Lord, in blessing You, as we receive Your gift of daily bread. Amen.
 
 THE Lord bless this food to our use, and us to His service. Amen.
 
-LORD, help us to receive all good things as from Thy hand, and to use them to Thy praise. Amen.
+LORD, help us to receive all good things as from Your hand, and to use them to Your praise. Amen.
 
-HEAVENLY Father, make us thankful to Thee, and mindful of others, as we receive these blessings, in Jesus' Name. Amen.
+HEAVENLY Father, make us thankful to You, and mindful of others, as we receive these blessings, in Jesus' Name. Amen.
 
-FATHER in heaven, sustain our bodies with this food, our hearts with true friendship, and our souls with Thy truth, for Christ's sake. Amen.
+FATHER in heaven, sustain our bodies with this food, our hearts with true friendship, and our souls with Your truth, for Christ's sake. Amen.
 
 LORD Jesus, be our holy Guest, \
 Our morning Joy, our evening Rest; \

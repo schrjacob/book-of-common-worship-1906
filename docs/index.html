@@ -1,0 +1,61 @@
+<!doctype html>
+<html lang="en">
+<head>
+  <meta charset="utf-8">
+  <meta name="viewport" content="width=device-width, initial-scale=1">
+  <title>The Book of Common Worship (1906)</title>
+  <meta name="description" content="The 1906 Presbyterian Book of Common Worship, in its original text and a lightly modernized edition, side by side.">
+  <script>
+    (function () {
+      try {
+        var t = localStorage.getItem('bcw-theme');
+        if (!t) t = window.matchMedia && window.matchMedia('(prefers-color-scheme: dark)').matches ? 'dark' : 'light';
+        document.documentElement.setAttribute('data-theme', t);
+        if (localStorage.getItem('bcw-toc') === 'hidden') document.documentElement.classList.add('toc-hidden');
+      } catch (e) {}
+    })();
+  </script>
+  <link rel="stylesheet" href="css/style.css">
+</head>
+<body>
+
+  <header class="bar" id="bar">
+    <div class="bar__inner">
+      <a class="bar__title" href="#top">The Book of Common Worship <span>1906</span></a>
+
+      <div class="bar__controls">
+        <div class="view-toggle" id="view-toggle" role="group" aria-label="Text to show">
+          <button type="button" data-view="original" aria-pressed="false">Original</button>
+          <button type="button" data-view="parallel" aria-pressed="true">Side by side</button>
+          <button type="button" data-view="modern" aria-pressed="false">Modernized</button>
+        </div>
+        <button type="button" class="btn" data-theme-toggle aria-pressed="false">Dark mode</button>
+        <button type="button" class="btn btn--toc" id="toc-toggle" aria-controls="toc" aria-expanded="true">Contents</button>
+      </div>
+    </div>
+    <div class="col-labels" aria-hidden="true">
+      <p class="col-label col-label--o">Original · 1906</p>
+      <p class="col-label col-label--l">Lightly modernized</p>
+    </div>
+  </header>
+
+  <div class="layout">
+    <main class="book" id="book" tabindex="-1">
+      <p class="loading">Loading…</p>
+    </main>
+
+    <aside class="toc" id="toc" aria-label="Table of contents">
+      <div class="toc__head">
+        <p class="toc__label">Contents</p>
+        <button type="button" class="toc__close" id="toc-close" aria-label="Hide table of contents">&times;</button>
+      </div>
+      <nav id="toc-tree"></nav>
+    </aside>
+  </div>
+  <div class="toc-backdrop" id="toc-backdrop"></div>
+
+  <script src="data/book.js"></script>
+  <script src="js/theme.js"></script>
+  <script src="js/reader.js"></script>
+</body>
+</html>
