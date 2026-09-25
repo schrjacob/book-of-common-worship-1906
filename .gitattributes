@@ -1,0 +1,15 @@
+# Normalise line endings for text; keep LF in the repository
+* text=auto eol=lf
+
+*.md   text diff=markdown
+*.csv  text
+*.py   text diff=python
+*.html text diff=html
+*.xhtml text diff=html
+
+*.pdf  binary
+*.epub binary
+*.zip  binary
+*.jpg  binary
+*.jpeg binary
+*.png  binary

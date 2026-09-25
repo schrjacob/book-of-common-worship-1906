@@ -1,0 +1,24 @@
+# Old location of the extracted EPUB; now in source/internet-archive/epub-extracted/.
+# Delete this folder once nothing has it open, then remove these lines.
+/bookofcommonwor00pres/
+
+# Backups written by tools/apply_review.py
+*.bak
+
+# OS / editor clutter
+Thumbs.db
+desktop.ini
+.DS_Store
+~$*
+*.tmp
+.vscode/
+.idea/
+
+# Python
+__pycache__/
+*.pyc
+.venv/
+
+# Build output (website / print) - add as the publishing pipeline takes shape
+/_site/
+/build/
